@@ -5,9 +5,8 @@ Rich The Kid x Offset Type Beat - Peak
 colorized world
 with no scars
 i only wanted
-no wars
-no fights
-no separate worlds
+no wars no fights
+no separate worlds aye 
 
 often words make
 our dimensions feel cold
@@ -24,8 +23,21 @@ fast to reap
 
 painting grey
 on a masterpiece
+seeking all waste
+among  order
+throttle fully bent
+
 no hidden layers 
-just the grief
-just the grief
+just the grief 
+truly only thing 
+is my own cause
+own charge own retreat 
+that's what's left to miss 
+grand plan won't hit, no hard feelings
+truly telling another one is 
+amidst round the corner
+
+
+
 
 
