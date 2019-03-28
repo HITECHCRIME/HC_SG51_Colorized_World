@@ -106,10 +106,12 @@ feel the warmth of my tribe
 sometimes it's the ashes
 that remain when you notice
 only flaws - decent neutral
+anything ?
 
 preach words
 they don't mean a thing
 same thing thing to everyone
+
 
 [CHORUS 4]
 colorized world
