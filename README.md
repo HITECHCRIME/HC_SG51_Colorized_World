@@ -6,7 +6,7 @@ colorized world
 with no scars
 i only wanted
 no wars no fights
-no separate worlds aye 
+no separate worlds aye  (no simple minds)
 
 often words make
 our dimensions feel cold
@@ -16,6 +16,7 @@ every day
 
 preach words
 they don't mean a thing
+same thing 
 same thing to everyone
 just for you
 the chosen one
