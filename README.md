@@ -55,7 +55,7 @@ truly only thing
 is my own cause
 own charge own retreat 
 
-[CHORUS]
+[CHORUS 2]
 colorized world
 with no scars
 i only wanted
@@ -77,8 +77,10 @@ preach words
 they don't mean a thing
 same thing thing to everyone
 
+[SIIMLAR TO CHORUS]
 cauterized wounds
 always find a way to heal
+
 
 
 
