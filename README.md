@@ -28,7 +28,7 @@ what next day\ll bring
 
 again
 the chosen one, fast to reap
-just for you to trust (i say)
+just for you to trust me (i say)
 painting grey on a masterpiece
 seeking all waste among order
 throttle fully bent (done) no hidden layers 
@@ -54,7 +54,7 @@ grand plan won't hit,
 no hard feelings
 truly telling another 
 one is amidst
-round the corner
+foretelling round the corner
 
 -----------------------------------------------------
 
