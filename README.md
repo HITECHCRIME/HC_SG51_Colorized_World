@@ -16,7 +16,7 @@ every day
 
 preach words
 they don't mean a thing
-same thing everyone
+same thing to everyone
 just for you
 the chosen one
 fast to reap
