@@ -83,13 +83,12 @@ in the end
 cauterized wounds
 always find a way to heal
 i only wanted
-no guides no masks 
-just grasp the heart of ice
-to
+no masks no guides
+just to grasp the heart of ice
 feel the warmth of my tribe
 sometimes it's the ashes
 that remain when you notice
-only flaws
+only flaws - decent neutral
 
 
 
