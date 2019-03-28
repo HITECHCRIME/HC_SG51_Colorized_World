@@ -58,7 +58,7 @@ every day ya (reverb)
 in the end
 
 [VERSE 3 - SIIMLAR TO CHORUS]
-cauterized wounds
+cauterized wounds on diehards
 always find ways to heal
 i only wanted
 no masks no guides
