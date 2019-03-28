@@ -2,6 +2,7 @@
 Hitech Crime Single "Colorized World"
 Rich The Kid x Offset Type Beat - Peak
 
+## Lyrics
 ```
 
 [CHORUS 1]
