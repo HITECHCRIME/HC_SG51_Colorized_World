@@ -84,9 +84,10 @@ cauterized wounds
 always find a way to heal
 i only wanted
 no guides no masks 
-just your heart of ice to
+just grasp the heart of ice
+to
 feel the warmth of my tribe
-sometimes it's your ashes
+sometimes it's the ashes
 that remain when you notice
 only flaws
 
