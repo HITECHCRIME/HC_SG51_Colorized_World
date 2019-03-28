@@ -14,6 +14,8 @@ often words make our dimensions feel cold
 i don't feel a thing is what i tell myself 
 every day ya (reverb)
 
+-----------------------------------------------------
+
 [VERSE 1]
 preach words, they don't mean a thing
 same a thing same to everyone 
@@ -29,6 +31,8 @@ throttle fully bent (done) no hidden layers
 just the grief, truly only thing 
 is my own cause, own charge own retreat
 
+-----------------------------------------------------
+
 [CHORUS 2]
 colorized world with no scars
 i only wanted no wars no fights
@@ -38,6 +42,8 @@ often words make our dimensions feel cold
 i don't feel a thing is what i tell myself 
 every day ya (reverb)
 
+-----------------------------------------------------
+
 [VERSE 2]
 that's what's left to miss 
 grand plan won't hit,
@@ -45,6 +51,8 @@ no hard feelings
 truly telling another 
 one is amidst
 round the corner
+
+-----------------------------------------------------
 
 [CHORUS 3]
 colorized world with no scars
@@ -56,11 +64,16 @@ i don't feel a thing is what i tell myself
 every day ya (reverb)
 
 in the end
+such a lowlife
+
+-----------------------------------------------------
 
 [VERSE 3 - SIIMLAR TO CHORUS]
 cauterized wound on diehards always find ways to heal  
 i only wanted 5 no masks no guides
 no secret moves aye ya (reverb)
+
+such a lowlife
 
 just to grasp the heart of ice
 feel the warmth of my tribe
@@ -74,6 +87,7 @@ preach words
 they don't mean a thing
 same thing thing to everyone
 
+-----------------------------------------------------
 
 [CHORUS 4]
 colorized world with no scars
