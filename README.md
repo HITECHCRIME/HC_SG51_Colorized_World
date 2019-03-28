@@ -2,7 +2,7 @@
 Hitech Crime Single "Colorized World"
 Rich The Kid x Offset Type Beat - Peak
 
-[CHORUS]
+[CHORUS 1]
 colorized world
 with no scars
 i only wanted
@@ -19,7 +19,7 @@ every day
 
 ya (reverb)
 
-[VERSE]
+[VERSE 1]
 preach words
 they don't mean a thing
 same thing same everyone 
@@ -31,8 +31,8 @@ that's where
 comes in hate
 who knows what next   (who know what day
 day will bring        will bring that's next) ?
-
-the chosen one fast to reap
+the chosen one 
+fast to reap
 just for you to trust
 (i say)
 painting grey
@@ -40,20 +40,6 @@ on a masterpiece
 seeking all waste
 among  order
 throttle fully bent (done)
-
-that's what's left to miss 
-grand plan won't hit,
-no hard feelings
-truly telling another 
-one is amidst
-round the corner
-
-no hidden layers 
-just the grief 
-
-truly only thing 
-is my own cause
-own charge own retreat 
 
 [CHORUS 2]
 colorized world
@@ -72,14 +58,41 @@ every day
 
 aye ya (reverb)
 
-[VERSE]
-preach words
-they don't mean a thing
-same thing thing to everyone
+[VERSE 2]
+that's what's left to miss 
+grand plan won't hit,
+no hard feelings
+truly telling another 
+one is amidst
+round the corner
+
+no hidden layers 
+just the grief 
+
+truly only thing 
+is my own cause
+own charge own retreat 
+
+[CHORUS 3]
+colorized world
+with no scars
+i only wanted
+no wars no fights
+no separate worlds 
+
+aye ya (reverb)
+
+often (no) words make
+our dimensions feel cold
+i don't feel a thing
+is what i tell myself
+every day
+
+aye ya (reverb)
 
 in the end
 
-[SIIMLAR TO CHORUS]
+[VERSE 3 - SIIMLAR TO CHORUS]
 cauterized wounds
 always find ways to heal
 i only wanted
@@ -94,9 +107,23 @@ sometimes it's the ashes
 that remain when you notice
 only flaws - decent neutral
 
+preach words
+they don't mean a thing
+same thing thing to everyone
 
+[CHORUS 4]
+colorized world
+with no scars
+i only wanted
+no wars no fights
+no separate worlds 
 
+aye ya (reverb)
 
+often (no) words make
+our dimensions feel cold
+i don't feel a thing
+is what i tell myself
+every day
 
-
-
+aye ya (reverb)
