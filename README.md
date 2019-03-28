@@ -16,9 +16,17 @@ every day
 
 preach words
 they don't mean a thing
-same thing fast to reap 
-just for you
-the chosen one to everyone
+same thing to everyone   
+
+x
+x
+x
+x
+
+x
+x
+the chosen one fast to reap
+just for you i say
 
 painting grey
 on a masterpiece
