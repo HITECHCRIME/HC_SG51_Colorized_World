@@ -69,23 +69,33 @@ such a lowlife
 -----------------------------------------------------
 
 [VERSE 3 - SIIMLAR TO CHORUS]
-cauterized wound on diehards always find ways to heal  
-i only wanted 5 no masks no guides
+cauterized wound on diehards 
+always find ways to heal  
+i only wanted no masks no guides
 no secret moves aye ya (reverb)
 
+x
+x
+x
+x
+
+x
+x
+decent neutral
+anything ?
+
+authorized drugs with no card sign
+ending wanted not bad no life no 
 such a lowlife
+
+nothing works mate, kinda get hysterical
+i need to break things when I steer myself
+somewhere new (in a new direction)
 
 just to grasp the heart of ice
 feel the warmth of my tribe
 sometimes it's the ashes that remain 
 when you notice only flaws - 
-
-decent neutral
-anything ?
-
-preach words
-they don't mean a thing
-same thing thing to everyone
 
 -----------------------------------------------------
 
