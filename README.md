@@ -6,7 +6,9 @@ colorized world
 with no scars
 i only wanted
 no wars no fights
-no separate worlds aye  (no simple minds)
+no separate worlds 
+
+aye ya (reverb)
 
 often (no) words make
 our dimensions feel cold
@@ -14,14 +16,17 @@ i don't feel a thing
 is what i tell myself
 every day
 
+aye ya (reverb)
+
+
 preach words
 they don't mean a thing
 same thing thing to everyone   
-
-x
-x
+say it through tears
+no simple minds
 that's where comes in hate
 who knows what next day will bring
+
 
 x
 x
