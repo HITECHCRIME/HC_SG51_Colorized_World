@@ -80,6 +80,9 @@ same thing thing to everyone
 [SIIMLAR TO CHORUS]
 cauterized wounds
 always find a way to heal
+i only wanted
+no masks no bribes
+just tribes of heart
 
 
 
