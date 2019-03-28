@@ -15,9 +15,9 @@ often (no) words make
 our dimensions feel cold
 i don't feel a thing
 is what i tell myself
-every day
+every day 
 
-aye ya (reverb)
+ya (reverb)
 
 [VERSE]
 preach words
@@ -34,6 +34,7 @@ the chosen one fast to reap
 just for you 
 (i say)
 
+trust
 painting grey
 on a masterpiece
 seeking all waste
