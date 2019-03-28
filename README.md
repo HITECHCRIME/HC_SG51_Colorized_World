@@ -77,4 +77,8 @@ preach words
 they don't mean a thing
 same thing thing to everyone
 
+cauterized wounds
+always find a way to heal
+
+
 
