@@ -22,27 +22,19 @@ ya (reverb)
 [VERSE]
 preach words
 they don't mean a thing
-same thing same 
-everyone say it 
-through the tears
+same thing same everyone 
+say it through the tears
+(tears)
 different everything
 no simple minds
 that's where
 comes in hate
-who knows what next 
-day will bring
+who knows what next   (who know what day
+day will bring        will bring that's next) ?
 
-
-
-
-
-x
-x
 the chosen one fast to reap
-just for you 
+just for you to trust
 (i say)
-
-trust
 painting grey
 on a masterpiece
 seeking all waste
@@ -89,15 +81,19 @@ in the end
 
 [SIIMLAR TO CHORUS]
 cauterized wounds
-always find a way to heal
+always find ways to heal
 i only wanted
 no masks no guides
 no secret moves
+
+ay ya
+
 just to grasp the heart of ice
 feel the warmth of my tribe
 sometimes it's the ashes
 that remain when you notice
 only flaws - decent neutral
+
 
 
 
