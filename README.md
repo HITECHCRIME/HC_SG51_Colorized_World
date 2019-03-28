@@ -92,6 +92,7 @@ cauterized wounds
 always find a way to heal
 i only wanted
 no masks no guides
+no secret moves
 just to grasp the heart of ice
 feel the warmth of my tribe
 sometimes it's the ashes
