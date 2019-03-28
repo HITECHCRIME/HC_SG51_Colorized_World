@@ -16,15 +16,15 @@ every day
 
 preach words
 they don't mean a thing
-same thing to everyone
-fast to reap just for you
-the chosen one
+same thing fast to reap 
+just for you
+the chosen one to everyone
 
 painting grey
 on a masterpiece
 seeking all waste
 among  order
-throttle fully bent
+throttle fully bent (done)
 
 no hidden layers 
 just the grief 
