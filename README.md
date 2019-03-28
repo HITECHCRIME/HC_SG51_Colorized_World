@@ -23,7 +23,7 @@ say it through the tears (tears)
 
 different everything, no simple minds
 that's where hate comes in 
-who knows - 
+who knows (when) - 
 what next day\ll bring
 
 again
@@ -80,13 +80,17 @@ no secret moves aye ya (reverb)
 
 x
 x
-x
-x
+x heavy toll paid
+let us live in colorized world
+all i want is you
+until both our souls are through
 
 x
 x
 decent neutral
 anything ?
+
+-
 
 authorized drugs with no card sign
 ending wanted not bad no life no 
@@ -96,10 +100,21 @@ nothing works mate, kinda get hysterical
 i need to break things when I steer myself
 sometimes new
 
+-
+
 just to grasp the heart of ice
 feel the warmth of my tribe
 sometimes it's the ashes that remain 
-when you notice only flaws - 
+when you notice only flaws 
+internal cause - 
+
+x
+x
+x heavy toll paid
+all i want is you
+let us live in
+a beautiful world
+until our souls are through
 
 -----------------------------------------------------
 
