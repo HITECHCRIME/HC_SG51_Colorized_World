@@ -22,13 +22,14 @@ ya (reverb)
 [VERSE 1]
 preach words
 they don't mean a thing
-same thing same everyone 
+same a thing same to everyone 
 say it through the tears
 (tears)
 different everything
 no simple minds
 that's where
 comes in hate
+
 who knows what next   (who know what day
 day will bring        will bring that's next) ?
 the chosen one 
