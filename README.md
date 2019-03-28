@@ -8,7 +8,7 @@ i only wanted
 no wars no fights
 no separate worlds aye  (no simple minds)
 
-often words make
+often (no) words make
 our dimensions feel cold
 i don't feel a thing
 is what i tell myself
