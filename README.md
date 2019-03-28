@@ -21,13 +21,13 @@ same thing to everyone
 x
 x
 x
-x
+x x x x bring
 
 x
 x
 the chosen one fast to reap
-just for you i say
-
+just for you 
+i say
 painting grey
 on a masterpiece
 seeking all waste
