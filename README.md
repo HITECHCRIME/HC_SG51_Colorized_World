@@ -20,12 +20,10 @@ every day ya (reverb)
 preach words, they don't mean a thing
 same a thing same to _everyone_
 say it through the tears (tears)
-
 different everything, no simple minds
 that's where hate comes in 
 who knows (when) - 
 what next day\ll bring
-
 again
 the chosen one, fast to reap
 just for you to trust me (i say)
@@ -53,7 +51,7 @@ that's what's left to miss
 grand plan won't hit,
 no hard feelings
 truly telling another 
-one is amidst
+one twin flame is amidst
 foretelling round the corner
 
 -----------------------------------------------------
@@ -104,17 +102,14 @@ sometimes new
 
 just to grasp the heart of ice
 feel the warmth of my tribe
-sometimes it's the ashes that remain 
+sometimes it's the ashes that remain (in your soul)
 when you notice only flaws 
 internal cause - 
+heavy toll paid all i want is you
+beautiful dark world let us live in cold
 
-x
-x
-x heavy toll paid
-all i want is you
-let us live in
-a beautiful world
-until our souls are through
+until our souls are through i swear on both our lives
+upping gear will bring the light close bring the light to us
 
 -----------------------------------------------------
 
