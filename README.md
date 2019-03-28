@@ -16,12 +16,12 @@ every day
 
 preach words
 they don't mean a thing
-same thing to everyone   
+same thing thing to everyone   
 
 x
 x
-x
-x x x x bring
+that's where comes in hate
+who knows what next day will bring
 
 x
 x
