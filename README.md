@@ -18,11 +18,12 @@ every day ya (reverb)
 
 [VERSE 1]
 preach words, they don't mean a thing
-same a thing same to everyone 
+same a thing same to _everyone_
 say it through the tears (tears)
 different everything, no simple minds
 that's where comes in hate
 who knows what next day will bring
+
 the chosen one, fast to reap
 just for you to trust (i say)
 painting grey on a masterpiece
