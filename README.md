@@ -16,11 +16,9 @@ every day
 
 preach words
 they don't mean a thing
-same thing 
 same thing to everyone
-just for you
+fast to reap just for you
 the chosen one
-fast to reap
 
 painting grey
 on a masterpiece
@@ -30,13 +28,17 @@ throttle fully bent
 
 no hidden layers 
 just the grief 
+
 truly only thing 
 is my own cause
 own charge own retreat 
+
 that's what's left to miss 
-grand plan won't hit, no hard feelings
-truly telling another one is 
-amidst round the corner
+grand plan won't hit,
+no hard feelings
+truly telling another 
+one is amidst
+round the corner
 
 
 
