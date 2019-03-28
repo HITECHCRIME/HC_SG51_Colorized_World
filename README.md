@@ -58,19 +58,16 @@ every day ya (reverb)
 in the end
 
 [VERSE 3 - SIIMLAR TO CHORUS]
-cauterized wounds on diehards
-always find ways to heal
-i only wanted
-no masks no guides
-no secret moves
-
-ay ya
+cauterized wound on diehards always find ways to heal  
+i only wanted 5 no masks no guides
+no secret moves aye ya (reverb)
 
 just to grasp the heart of ice
 feel the warmth of my tribe
-sometimes it's the ashes
-that remain when you notice
-only flaws - decent neutral
+sometimes it's the ashes that remain 
+when you notice only flaws - 
+
+decent neutral
 anything ?
 
 preach words
