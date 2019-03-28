@@ -77,12 +77,20 @@ preach words
 they don't mean a thing
 same thing thing to everyone
 
+in the end
+
 [SIIMLAR TO CHORUS]
 cauterized wounds
 always find a way to heal
 i only wanted
-no masks no bribes
-just tribes of heart
+no guides no masks 
+just your heart of ice to
+feel the warmth of my tribe
+sometimes it's your ashes
+that remain when you notice
+only flaws
+
+
 
 
 
