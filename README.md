@@ -22,11 +22,19 @@ ya (reverb)
 [VERSE]
 preach words
 they don't mean a thing
-same thing thing to everyone   
-say it through tears
+same thing same 
+everyone say it 
+through the tears
+different everything
 no simple minds
-that's where comes in hate
-who knows what next day will bring
+that's where
+comes in hate
+who knows what next 
+day will bring
+
+
+
+
 
 x
 x
