@@ -2,62 +2,40 @@
 Hitech Crime Single "Colorized World"
 Rich The Kid x Offset Type Beat - Peak
 
+```
+
 [CHORUS 1]
-colorized world
-with no scars
-i only wanted
-no wars no fights
-no separate worlds 
+colorized world with no scars
+i only wanted no wars no fights
+no separate worlds aye ya (reverb)
 
-aye ya (reverb)
-
-often (no) words make
-our dimensions feel cold
-i don't feel a thing
-is what i tell myself
-every day 
-
-ya (reverb)
+often words make our dimensions feel cold
+i don't feel a thing is what i tell myself 
+every day ya (reverb)
 
 [VERSE 1]
-preach words
-they don't mean a thing
+preach words, they don't mean a thing
 same a thing same to everyone 
-say it through the tears
-(tears)
-different everything
-no simple minds
-that's where
-comes in hate
-
-who knows what next   (who know what day
-day will bring        will bring that's next) ?
-the chosen one 
-fast to reap
-just for you to trust
-(i say)
-painting grey
-on a masterpiece
-seeking all waste
-among  order
-throttle fully bent (done)
+say it through the tears (tears)
+different everything, no simple minds
+that's where comes in hate
+who knows what next day will bring
+the chosen one, fast to reap
+just for you to trust (i say)
+painting grey on a masterpiece
+seeking all waste among order
+throttle fully bent (done) no hidden layers 
+just the grief, truly only thing 
+is my own cause, own charge own retreat
 
 [CHORUS 2]
-colorized world
-with no scars
-i only wanted
-no wars no fights
-no separate worlds 
+colorized world with no scars
+i only wanted no wars no fights
+no separate worlds aye ya (reverb)
 
-aye ya (reverb)
-
-often (no) words make
-our dimensions feel cold
-i don't feel a thing
-is what i tell myself
-every day
-
-aye ya (reverb)
+often words make our dimensions feel cold
+i don't feel a thing is what i tell myself 
+every day ya (reverb)
 
 [VERSE 2]
 that's what's left to miss 
@@ -67,29 +45,14 @@ truly telling another
 one is amidst
 round the corner
 
-no hidden layers 
-just the grief 
-
-truly only thing 
-is my own cause
-own charge own retreat 
-
 [CHORUS 3]
-colorized world
-with no scars
-i only wanted
-no wars no fights
-no separate worlds 
+colorized world with no scars
+i only wanted no wars no fights
+no separate worlds aye ya (reverb)
 
-aye ya (reverb)
-
-often (no) words make
-our dimensions feel cold
-i don't feel a thing
-is what i tell myself
-every day
-
-aye ya (reverb)
+often words make our dimensions feel cold
+i don't feel a thing is what i tell myself 
+every day ya (reverb)
 
 in the end
 
@@ -115,18 +78,14 @@ same thing thing to everyone
 
 
 [CHORUS 4]
-colorized world
-with no scars
-i only wanted
-no wars no fights
-no separate worlds 
+colorized world with no scars
+i only wanted no wars no fights
+no separate worlds aye ya (reverb)
 
-aye ya (reverb)
+often words make our dimensions feel cold
+i don't feel a thing is what i tell myself 
+every day ya (reverb)
 
-often (no) words make
-our dimensions feel cold
-i don't feel a thing
-is what i tell myself
-every day
+chorus again fades out into silence
 
-aye ya (reverb)
+```
