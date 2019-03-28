@@ -90,7 +90,7 @@ such a lowlife
 
 nothing works mate, kinda get hysterical
 i need to break things when I steer myself
-somewhere new (in a new direction)
+sometimes new
 
 just to grasp the heart of ice
 feel the warmth of my tribe
