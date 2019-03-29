@@ -22,15 +22,16 @@ every day ya (reverb)
 
 [VERSE 1]
 preach words, they don't mean a thing
-same (a) thing same to everyone 
-just for you the chosen, so 
+same (a) thing not to everyone 
+just for you the chosen, so
 fast to reap
 
 painting grey 
 on a masterpiece
 seeking all the waste 
 among order
-throttle fully bent ya ------------------- ? (around my knees)
+throttle fully bent 
+round my knees
 
 make it clear 
 to trust me (i say)
@@ -41,12 +42,13 @@ twin soul
 (we're) seperate flames
 different context (?)
 that's where hate comes in 
-no simple minds who knows (when) 
-what next day'll bring ya (reverb) ------- ?
+no simple minds who knows it 
+(when) what next day'll bring ya (reverb) ------- ?
 
+(steady ground)
 no hidden layers 
 just the grief
-truly only steady ground
+truly only thing
 is my own cause 
 own charge own retreat
 
@@ -102,9 +104,8 @@ no secret moves aye ya (reverb)
 
 x
 x
-x heavy toll paid
+x heavy toll paid all i want is you
 let us live in colorized world
-all i want is you
 till both our souls are through
 
 x
@@ -114,7 +115,7 @@ anything ?
 
 -
 
-authorized drugs with no card sign
+- authorized drugs with no card sign
 ending wanted not bad no life no 
 such a lowlife
 
