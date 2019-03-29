@@ -22,15 +22,15 @@ every day ya (reverb)
 
 [VERSE 1]
 preach words, they don't mean a thing
-same a thing same to everyone 
-just for you the chosen one 
+same (a) thing same to everyone 
+just for you the chosen, so 
 fast to reap
 
 painting grey 
 on a masterpiece
-seeking all waste 
+seeking all the waste 
 among order
-throttle fully bent ya
+throttle fully bent ya ------------------- ? (around my knees)
 
 make it clear 
 to trust me (i say)
@@ -38,11 +38,11 @@ say it
 through the tears yeah (tears)
 - then again 
 twin soul 
-seperate flames
+(we're) seperate flames
 different context (?)
 that's where hate comes in 
 no simple minds who knows (when) 
-what next day'll bring ya (reverb)
+what next day'll bring ya (reverb) ------- ?
 
 no hidden layers 
 just the grief
