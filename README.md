@@ -21,40 +21,38 @@ every day ya (reverb)
 -----------------------------------------------------
 
 [VERSE 1]
-preach words, 
-they don't mean a thing
-same a thing 
-same to everyone 
-just for you the chosen one, 
-fast to reap, 
-
-different everything, 
-that's where hate comes in 
-no simple minds who knows (when) 
-what next day'll bring ya (reverb)
-
-make it clear to trust me (i say)
-say it through the tears (tears)
-then again twin soul seperate flames
+preach words, they don't mean a thing
+same a thing same to everyone 
+just for you the chosen one 
+fast to reap
 
 painting grey 
 on a masterpiece
 seeking all waste 
 among order
-throttle fully bent
+throttle fully bent ya
 
-truly only thing is my own cause 
+make it clear 
+to trust me (i say)
+say it 
+through the tears yeah (tears)
+- then again 
+twin soul 
+seperate flames
+different context (?)
+that's where hate comes in 
+no simple minds who knows (when) 
+what next day'll bring ya (reverb)
+
+no hidden layers 
+just the grief
+truly only thing 
+is my own cause 
 own charge own retreat
 
-no hidden layers
-just the grief
-
-x
-x
-x
-
-
-i have no words other than be in peace (rest in peace)
+i have no words other than be in peace 
+be in peace
+(rest in peace) yeah
 
 
 -----------------------------------------------------
