@@ -6,32 +6,42 @@ Rich The Kid x Offset Type Beat - Peak
 ```
 
 [CHORUS 1]
-colorized world with no scars
-i only wanted no wars no fights
+colorized world 
+with no scars
+i only wanted 
+no wars no fights
 no separate worlds aye ya (reverb)
 
-often words make our dimensions feel cold
-i don't feel a thing is what i tell myself 
+often words make 
+our dimensions feel cold
+i don't feel a thing 
+is what i tell myself 
 every day ya (reverb)
 
 -----------------------------------------------------
 
 [VERSE 1]
-preach words, they don't mean a thing
-same a thing same to everyone 
+preach words, 
+they don't mean a thing
+same a thing 
+same to everyone 
 just for you the chosen one, 
-fast to reap, different everything, 
-that's where hate comes in 
-no simple minds who knows (when) - 
-what next day'll bring ya
+fast to reap, 
 
-painting grey on a masterpiece
-seeking all waste among order
-throttle fully bent, 
+different everything, 
+that's where hate comes in 
+no simple minds who knows (when) 
+what next day'll bring ya (reverb)
 
 make it clear to trust me (i say)
 say it through the tears (tears)
 then again twin soul seperate flames
+
+painting grey 
+on a masterpiece
+seeking all waste 
+among order
+throttle fully bent
 
 truly only thing is my own cause 
 own charge own retreat
