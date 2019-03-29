@@ -25,16 +25,23 @@ that's where hate comes in
 no simple minds who knows (when) - 
 what next day'll bring ya
 
+painting grey on a masterpiece
+
+seeking all waste among order
+throttle fully bent, no hidden layers
+
+just the grief
+
+x
+x
+x
+
 make it clear to trust me (i say)
 say it through the tears (tears)
-then again twin soul seperate flame
+then again twin soul seperate flames
 truly only thing is my own cause 
 own charge own retreat
 
-seeking all waste among order
-painting grey on a masterpiece
-throttle fully bent, no hidden layers
-just the grief
 
 -----------------------------------------------------
 
@@ -86,7 +93,7 @@ x
 x heavy toll paid
 let us live in colorized world
 all i want is you
-until both our souls are through
+till both our souls are through
 
 x
 x
