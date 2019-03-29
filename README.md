@@ -18,19 +18,20 @@ every day ya (reverb)
 
 [VERSE 1]
 preach words, they don't mean a thing
-same a thing same to _everyone_, just the one
+same a thing same to _everyone_, just for you
 the chosen one, fast to reap
 
 different everything, no simple minds
 that's where hate comes in 
 who knows (when) - 
-what next day\ll bring
-again
+what next day'll bring ya
+
 say it through the tears (tears)
 make it clear to trust me (i say)
+then again
 painting grey on a masterpiece
 seeking all waste among order
-throttle fully bent (done) no hidden layers 
+throttle fully bent, no hidden layers 
 just the grief, truly only thing 
 is my own cause, own charge own retreat
 
@@ -51,9 +52,10 @@ every day ya (reverb)
 that's what's left to miss 
 grand plan won't hit,
 no hard feelings
-truly telling another 
+truly telling 
 one twin flame is amidst
 foretelling round the corner
+
 
 -----------------------------------------------------
 
