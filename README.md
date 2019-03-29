@@ -18,15 +18,16 @@ every day ya (reverb)
 
 [VERSE 1]
 preach words, they don't mean a thing
-same a thing same to _everyone_
-say it through the tears (tears)
+same a thing same to _everyone_, just the one
+the chosen one, fast to reap
+
 different everything, no simple minds
 that's where hate comes in 
 who knows (when) - 
 what next day\ll bring
 again
-the chosen one, fast to reap
-just for you to trust me (i say)
+say it through the tears (tears)
+make it clear to trust me (i say)
 painting grey on a masterpiece
 seeking all waste among order
 throttle fully bent (done) no hidden layers 
