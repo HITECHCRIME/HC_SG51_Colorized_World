@@ -29,8 +29,8 @@ fast to reap
 painting grey 
 on a masterpiece
 seeking all the waste 
-among order
-throttle fully bent 
+among order, 100 deep
+throttle fully bent
 round my knees
 
 make it clear 
