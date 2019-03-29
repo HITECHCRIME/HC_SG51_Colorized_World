@@ -18,22 +18,21 @@ every day ya (reverb)
 
 [VERSE 1]
 preach words, they don't mean a thing
-same a thing same to _everyone_, just for you
-the chosen one, fast to reap
-
-different everything, no simple minds
+same a thing same to everyone 
+just for you the chosen one, 
+fast to reap, different everything, 
 that's where hate comes in 
-who knows (when) - 
+no simple minds who knows (when) - 
 what next day'll bring ya
-
-say it through the tears (tears)
 make it clear to trust me (i say)
-then again
+say it through the tears (tears)
+then again twin soul seperate flame
+truly only thing is my own cause 
+own charge own retreat
 painting grey on a masterpiece
 seeking all waste among order
-throttle fully bent, no hidden layers 
-just the grief, truly only thing 
-is my own cause, own charge own retreat
+throttle fully bent, no hidden layers
+just the grief
 
 -----------------------------------------------------
 
@@ -55,6 +54,7 @@ no hard feelings
 truly telling 
 one twin flame is amidst
 foretelling round the corner
+expect a diss
 
 
 -----------------------------------------------------
@@ -98,7 +98,7 @@ ending wanted not bad no life no
 such a lowlife
 
 nothing works mate, kinda get hysterical
-i need to break things when I steer myself
+i need breaking things when I steer myself
 sometimes new
 
 -
