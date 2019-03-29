@@ -42,9 +42,8 @@ twin soul
 (we're) seperate flames
 different context (?)
 that's where hate comes in 
-no simple minds who knows it 
-(when) what next day'll bring ya (reverb) ------- ?
-
+no simple mind who knows it weapons drawn (next)
+(when) what the next day'll bring ya (reverb) ------- ?
 (steady ground)
 no hidden layers 
 just the grief
