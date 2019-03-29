@@ -46,7 +46,7 @@ what next day'll bring ya (reverb)
 
 no hidden layers 
 just the grief
-truly only thing 
+truly only steady ground
 is my own cause 
 own charge own retreat
 
