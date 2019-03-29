@@ -26,21 +26,24 @@ no simple minds who knows (when) -
 what next day'll bring ya
 
 painting grey on a masterpiece
-
 seeking all waste among order
-throttle fully bent, no hidden layers
-
-just the grief
-
-x
-x
-x
+throttle fully bent, 
 
 make it clear to trust me (i say)
 say it through the tears (tears)
 then again twin soul seperate flames
 truly only thing is my own cause 
 own charge own retreat
+
+no hidden layers
+just the grief
+
+x
+x
+x
+
+
+i have no words other than be in peace (rest in peace)
 
 
 -----------------------------------------------------
