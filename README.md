@@ -32,6 +32,7 @@ throttle fully bent,
 make it clear to trust me (i say)
 say it through the tears (tears)
 then again twin soul seperate flames
+
 truly only thing is my own cause 
 own charge own retreat
 
