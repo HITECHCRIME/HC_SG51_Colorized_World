@@ -149,3 +149,8 @@ every day ya (reverb)
 chorus again fades out into silence
 
 ```
+
+## Music Video
+
+Meditating (drone footage), connection with other minds while raging inside with emotions.
+Mixed with some techwear swag footage.
