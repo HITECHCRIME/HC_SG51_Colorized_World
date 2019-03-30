@@ -18,28 +18,25 @@ every day ya
 
 [VERSE 1]
 preach words, they don't mean a thing
-same thing not to everyone just for you 
+same thing not to everyone just for you ///// same thing not to you, not everyone
 the chosen, soo fast to reap
 
 painting grey on a masterpiece
-seeking all the waste among order
-(20/20) 4 and 20 deep, throttle fully bent
+seeking all the waste among order (20/20)
+4 and 20 deep, throttle fully bent
 round my knees
 
 make it clear to trust me (i say)
-say it through the tears yeah (tears)
-- then again twin soul (we're) seperate flames
+say it through the tears yeah
+- then again twin soul seperate flames (
 different set, that is where hate comes in ------------------------------------------ used to be context
+no simple mind who knows it, weapons next (annuls it) (when) 
+what long day'll bring ya (reverb) ------------------- what the day'll bring
 
-no simple mind who knows it (annuls it) weapons drawn next
-(when) what the next day'll bring ya (reverb) ------------------- what the day'll bring
-(steady ground)
-no hidden layers 
-just the grief
-truly only thing
-is my own cause 
+no hidden layers just the grief
+truly only thing is my own cause 
 own charge own retreat
-
+(steady ground)
 i have no words other than be in peace 
 be in peace
 (rest in peace) yeah
