@@ -42,7 +42,7 @@ twin soul
 (we're) seperate flames
 different context (?)
 that's where hate comes in 
-no simple mind who knows it weapons drawn (next)
+no simple mind who knows it (annuls it) weapons drawn (next)
 (when) what the next day'll bring ya (reverb) ------- ?
 (steady ground)
 no hidden layers 
