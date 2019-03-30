@@ -22,14 +22,14 @@ every day ya (reverb)
 
 [VERSE 1]
 preach words, they don't mean a thing
-same (a) thing not to everyone 
+same thing not to everyone 
 just for you the chosen, so
 fast to reap
 
 painting grey 
 on a masterpiece
 seeking all the waste 
-among order, 100 deep
+among order, 20/20 deep
 throttle fully bent
 round my knees
 
