@@ -6,17 +6,13 @@ Rich The Kid x Offset Type Beat - Peak
 ```
 
 [CHORUS 1]
-colorized world 
-with no scars
-i only wanted 
-no wars no fights
-no separate worlds aye ya (reverb)
+colorized world with no scars
+i only wanted no wars no fights
+no separate worlds aye ya
 
-often words make 
-our dimensions feel cold
-i don't feel a thing 
-is what i tell myself 
-every day ya (reverb)
+often words make our dimensions feel cold
+i don't feel a thing is what i tell myself 
+every day ya
 
 -----------------------------------------------------
 
@@ -27,7 +23,7 @@ the chosen, soo fast to reap
 
 painting grey on a masterpiece
 seeking all the waste among order
-4 and 20 deep, throttle fully bent
+(20/20) 4 and 20 deep, throttle fully bent
 round my knees
 
 make it clear to trust me (i say)
