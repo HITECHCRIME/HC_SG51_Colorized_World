@@ -18,7 +18,7 @@ every day ya
 
 [VERSE 1]
 preach words, they don't mean a thing
-same thing not to everyone just for you ///// same thing not to you, not everyone
+same thing not to you, not everyone ///// same thing not to everyone just for you ///// 
 the chosen, soo fast to reap ya
 
 painting grey on a masterpiece
@@ -26,16 +26,10 @@ seeking all the waste among order (20/20)
 4 and 20 deep, throttle fully bent
 round my knees
 
-make it clear to trust me (i say)
-say it - through the tears hun (hun)
+make it clear to trust me 
+i say, say it - through the tears hun
 - then again twin soul seperate flames
 different vector where the hate resides
-
-(different vector where the sparks of hate reside)
-(different context where the hate resides)
-different set, that is where hate comes in ------------------------- used to be context
-(different vector context where the hate comes in) 
-
 no simple mind who knows it, weapons next (annuls it) (when) 
 what long day'll bring ya (reverb) ------------------- what the day'll bring
 
