@@ -20,18 +20,17 @@ every day ya
 preach words, they don't mean a thing
 same thing not to you, not everyone ///// same thing not to everyone just for you ///// 
 the chosen, soo fast to reap ya
-
 painting grey on a masterpiece
 seeking all the waste among order (20/20)
 4 and 20 deep, throttle fully bent
 round my knees
 
 make it clear to trust me 
-i say, say it - through the tears hun
+i say, say it - through the tears hun (yeah)
 - then again twin soul seperate flames
 different vector where the hate resides
-no simple mind who knows it, weapons next (annuls it) (when) 
-(this) what long day'll bring ya (reverb) ------------------- what the day'll bring
+no simple mind who knows it, weapons next (annuls it)
+this is what long day'll bring ya
 
 no hidden layers just the grief
 truly only thing is my own cause 
