@@ -18,7 +18,7 @@ every day ya
 
 [VERSE 1]
 preach words, they don't mean a thing
-same thing not to you, not everyone ///// same thing not to everyone just for you ///// 
+same thing not to you, just everyone ///// same thing not to everyone just for you ///// 
 the chosen, soo fast to reap ya
 painting grey on a masterpiece
 seeking all the waste among order (20/20)
