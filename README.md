@@ -31,7 +31,7 @@ i say, say it - through the tears hun
 - then again twin soul seperate flames
 different vector where the hate resides
 no simple mind who knows it, weapons next (annuls it) (when) 
-what long day'll bring ya (reverb) ------------------- what the day'll bring
+(this) what long day'll bring ya (reverb) ------------------- what the day'll bring
 
 no hidden layers just the grief
 truly only thing is my own cause 
