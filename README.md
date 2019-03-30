@@ -30,8 +30,7 @@ i say, say it - through the tears hun (yeah)
 - then again twin soul seperate flames
 different vector where the hate resides
 no simple mind who knows it, weapons next (annuls it)
-this is what long day'll bring ya
-
+this is what long day'll bring 
 no hidden layers just the grief
 truly only thing is my own cause 
 own charge own retreat, steady ground
