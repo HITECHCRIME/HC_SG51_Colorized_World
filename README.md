@@ -22,27 +22,20 @@ every day ya (reverb)
 
 [VERSE 1]
 preach words, they don't mean a thing
-same thing not to everyone 
-just for you the chosen, so
-fast to reap
+same thing not to everyone just for you 
+the chosen, soo fast to reap
 
-painting grey 
-on a masterpiece
-seeking all the waste 
-among order, 4 and 20 deep
-throttle fully bent
+painting grey on a masterpiece
+seeking all the waste among order
+4 and 20 deep, throttle fully bent
 round my knees
 
-make it clear 
-to trust me (i say)
-say it 
-through the tears yeah (tears)
-- then again 
-twin soul 
-(we're) seperate flames
-different context (?)
-that's where hate comes in 
-no simple mind who knows it (annuls it) weapons drawn (next) ---- weapos drawn next
+make it clear to trust me (i say)
+say it through the tears yeah (tears)
+- then again twin soul (we're) seperate flames
+different set, that is where hate comes in ------------------------------------------ used to be context
+
+no simple mind who knows it (annuls it) weapons drawn next
 (when) what the next day'll bring ya (reverb) ------------------- what the day'll bring
 (steady ground)
 no hidden layers 
