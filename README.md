@@ -42,8 +42,8 @@ twin soul
 (we're) seperate flames
 different context (?)
 that's where hate comes in 
-no simple mind who knows it (annuls it) weapons drawn (next)
-(when) what the next day'll bring ya (reverb) ------- ?
+no simple mind who knows it (annuls it) weapons drawn (next) ---- weapos drawn next
+(when) what the next day'll bring ya (reverb) ------------------- what the day'll bring
 (steady ground)
 no hidden layers 
 just the grief
