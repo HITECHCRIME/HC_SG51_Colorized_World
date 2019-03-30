@@ -153,4 +153,4 @@ chorus again fades out into silence
 ## Music Video
 
 Meditating (drone footage), connection with other minds while raging inside with emotions.
-Mixed with some techwear swag footage.
+Mixed with some techwear swag footage + like in the reference graphic - hugging a girl, my face hidden by her hair floating in the air, grasping for each other
