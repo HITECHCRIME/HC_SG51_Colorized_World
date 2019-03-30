@@ -29,7 +29,7 @@ fast to reap
 painting grey 
 on a masterpiece
 seeking all the waste 
-among order, 20/20 deep
+among order, 4 and 20 deep
 throttle fully bent
 round my knees
 
