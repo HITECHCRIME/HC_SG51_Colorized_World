@@ -28,11 +28,11 @@ seeking all the waste among order (20/20)
 round my knees
 
 make it clear to trust me 
-i say, say it - through the tears hun (yeah)
+i say, say it - through the tears hun ------------(yeah)
 - then again twin soul seperate flames
-different vector where the hate resides
-no simple mind who knows it, weapons drawn (annuls it)
-(this is) what next long day should bring (it was day'll)
+different vector's where the hate resides
+no simple mind who knows it, weapons drawn -------(annuls it)
+(to) what (the) next (long) day should bring ------------------(it was day'll) (this is) 
 no hidden layers just the grief
 truly only thing is my own cause 
 own charge own retreat, steady ground
