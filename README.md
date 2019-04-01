@@ -59,9 +59,7 @@ grand plan won't hit,
 no hard feelings
 truly telling 
 foretelling round the corner
-
 one twin flame is amidst
-
 expect a diss
 
 
@@ -86,26 +84,19 @@ cauterized wound on diehards
 always find ways to heal  
 i only wanted no masks no guides
 no secret moves aye ya (reverb)
-
-x
-x
-x heavy toll paid all i want is you
-let us live in colorized world
-till both our souls are through
-
-x
-x
-decent neutral
-anything ?
-
 authorized drugs with no card sign
 ending wanted not bad no life no 
 such a lowlife
 nothing works mate, kinda get hysterical
 i need breaking things when I steer myself
+sometimes new 
+ 
+when I steer myself
 sometimes new
 
--
+heavy toll paid all i want is you
+let us live in colorized world
+till both our souls are through
 
 just to grasp the heart of ice
 feel the warmth of my tribe
@@ -117,6 +108,9 @@ beautiful dark world let us live in cold
 
 until our souls are through i swear on both our lives
 upping gear will bring the light close bring the light to us
+
+decent neutral
+anything ?
 
 -----------------------------------------------------
 
