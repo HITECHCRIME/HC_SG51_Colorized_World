@@ -80,13 +80,17 @@ such a lowlife
 -----------------------------------------------------
 
 [VERSE 3 - SIIMLAR TO CHORUS]
-cauterized wound on diehards 
+cauterized wounds - on diehards 
 always find ways to heal  
-i only wanted no masks no guides
-no secret moves aye ya (reverb)
+i only wanted 
+no masks 
+no guides
+no secret moves aye 
+ya (reverb)
 authorized drugs with no card sign
-ending wanted not bad no life no 
+ending wanted not bad just say it have no life no 
 such a lowlife
+
 nothing works mate, kinda get hysterical
 i need breaking things when I steer myself
 sometimes new 
@@ -103,9 +107,10 @@ feel the warmth of my tribe
 sometimes it's the ashes that remain (in your soul)
 when you notice only flaws 
 internal cause - 
-heavy toll paid all i want is you
-beautiful dark world let us live in cold
+heavy toll paid 
 
+all i want is you
+beautiful dark world let us live in cold
 until our souls are through i swear on both our lives
 upping gear will bring the light close bring the light to us
 
