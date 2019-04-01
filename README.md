@@ -58,8 +58,10 @@ that's what's left to miss
 grand plan won't hit,
 no hard feelings
 truly telling 
-one twin flame is amidst
 foretelling round the corner
+
+one twin flame is amidst
+
 expect a diss
 
 
@@ -75,7 +77,7 @@ i don't feel a thing is what i tell myself
 every day ya (reverb)
 
 in the end
-such a lowlife
+such a lowlife 
 
 -----------------------------------------------------
 
@@ -96,12 +98,9 @@ x
 decent neutral
 anything ?
 
--
-
-- authorized drugs with no card sign
+authorized drugs with no card sign
 ending wanted not bad no life no 
 such a lowlife
-
 nothing works mate, kinda get hysterical
 i need breaking things when I steer myself
 sometimes new
