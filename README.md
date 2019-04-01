@@ -101,7 +101,6 @@ sometimes new
 heavy toll paid all i want is you
 let us live in colorized world
 till both our souls are through
-
 just to grasp the heart of ice
 feel the warmth of my tribe
 sometimes it's the ashes that remain (in your soul)
@@ -111,8 +110,12 @@ heavy toll paid
 
 all i want is you
 beautiful dark world let us live in cold
-until our souls are through i swear on both our lives
-upping gear will bring the light close bring the light to us
+until our souls are through 
+i swear on both our lives
+upping gear will bring the light close 
+bring the light (to us)
+
+<the singing part>yee eeee uuuu-uuuuuuu
 
 decent neutral
 anything ?
