@@ -114,6 +114,9 @@ until our souls are through
 i swear on both our lives
 upping gear will bring the light close 
 bring the light (to us)
+that's when the colours come out
+bring the light close aye
+
 
 <the singing part>yee eeee uuuu-uuuuuuu
 
