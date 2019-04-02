@@ -71,6 +71,9 @@ foretelling round the corner
 one twin flame is amidst (?)
 expect a diss
 
+in the end
+such a lowlife
+
 x
 x
 x
@@ -96,8 +99,6 @@ often words make our dimensions feel cold
 i don't feel a thing is what i tell myself 
 every day ya (reverb)
 
-in the end
-such a lowlife 
 
 -----------------------------------------------------
 
@@ -114,27 +115,49 @@ authorized drugs with no card sign
 ending wanted not bad 
 say it i have no life 
 such a lowlife
+ya
+
+heavy toll paid all i want is you
 
 all i want is you
 let us live in colorized world
 
 till both our souls are through
-just to grasp the heart of ice
-feel the warmth of my tribe
+just to grasp the heart of ice, melting thrice
+feel the warmth, calm of my tribe's might
 sometimes it's the ashes that remain (in your soul)
-when you notice only flaws 
-internal cause - heavy toll paid 
+when you notice 
 
-all i want is you
+only flaws 
+inner cause 
+
+internal
+
+heavy toll paid,  
+feeling raw weight
+
+heavy toll paid all i want is you
 beautiful dark world 
 
 let us live in cold
 until our souls are through 
-i swear on both our lives
+i swear on our both lives
 upping gear will bring the light close 
 bring the light (to us)
+
 that's when the colours come out
 bring the light close aye
+
+(fades)
+
+upping gear will bring the light close 
+bring the light (to us)
+
+that's when the colours come out
+bring the light close aye
+
+<the singing part>yee eeee uuuu-uuuuuuu (annfran)
+
 
 nothing works mate, kinda get hysterical
 i need breaking things when I steer myself
@@ -143,8 +166,11 @@ sometimes new (?)
 when I steer myself
 sometimes new
 
+(1/10th part from the back)
+ann fran finale
 
-<the singing part>yee eeee uuuu-uuuuuuu
+
+
 
 decent neutral
 anything ?
