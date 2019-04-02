@@ -6,6 +6,13 @@ Rich The Kid x Offset Type Beat - Peak
 
 ## Lyrics
 ```
+colorized world
+colorized world
+(sing)
+
+colorized world with no scars
+i only wanted no wars no fights
+no separate worlds aye
 
 [CHORUS 1]
 colorized world with no scars
@@ -20,7 +27,7 @@ every day ya
 
 [VERSE 1]
 preach words, they don't mean a thing
-same thing not to you, just everyone ///// same thing not to everyone just for you ///// 
+same thing not to everyone just for you ///// same thing not to you, just everyone ///// 
 the chosen, soo fast to reap ya
 painting grey on a masterpiece
 seeking all the waste among order (20/20)
@@ -59,7 +66,9 @@ grand plan won't hit,
 no hard feelings
 truly telling 
 foretelling round the corner
-one twin flame is amidst
+
+
+one twin flame is amidst (?)
 expect a diss
 
 
@@ -93,7 +102,7 @@ such a lowlife
 
 nothing works mate, kinda get hysterical
 i need breaking things when I steer myself
-sometimes new 
+sometimes new (?)
  
 when I steer myself
 sometimes new
