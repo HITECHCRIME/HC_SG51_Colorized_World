@@ -124,7 +124,7 @@ let us live in colorized world
 
 till both our souls are through
 just to grasp the heart of ice, melting thrice
-feel the warmth, calm of my tribe's might
+feel the vibe warmth, calm of my tribe's might
 sometimes it's the ashes that remain (in your soul)
 when you notice 
 
