@@ -38,8 +38,8 @@ make it clear to trust me
 i say, say it - through the tears hun ------------(yeah)
 - then again twin soul seperate flames
 different vector's where the hate resides
-no simple mind who knows it, weapons drawn -------(annuls it)
-(to) what (the) next (long) day should bring ------------------(it was day'll) (this is) 
+no simple mind who knows it, weapons drawn next-------(annuls it)
+what day'll bring ------------------(it was day'll) (this is) should (long)
 no hidden layers just the grief
 truly only thing is my own cause 
 own charge own retreat, steady ground
