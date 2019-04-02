@@ -28,7 +28,7 @@ every day ya
 [VERSE 1]
 preach words, they don't mean a thing
 same thing not to everyone just for you ///// same thing not to you, just everyone ///// 
-the chosen, soo fast to reap ya
+the chosen, so fast to reap ya
 painting grey on a masterpiece
 seeking all the waste among order (20/20)
 4 and 20 deep, throttle fully bent
@@ -71,8 +71,21 @@ foretelling round the corner
 one twin flame is amidst (?)
 expect a diss
 
+x
+x
+x
+x
+x
+x
+
+
 
 -----------------------------------------------------
+
+colorized world with no scars
+i only wanted no wars no fights
+no separate worlds aye
+(events)
 
 [CHORUS 3]
 colorized world with no scars
@@ -89,16 +102,39 @@ such a lowlife
 -----------------------------------------------------
 
 [VERSE 3 - SIIMLAR TO CHORUS]
-cauterized wounds - on diehards 
+cauterized wound
+on diehards 
 always find ways to heal  
-i only wanted 
+only wanted 
 no masks 
 no guides
 no secret moves aye 
 ya (reverb)
 authorized drugs with no card sign
-ending wanted not bad just say it have no life no 
+ending wanted not bad 
+say it i have no life 
 such a lowlife
+
+all i want is you
+let us live in colorized world
+
+till both our souls are through
+just to grasp the heart of ice
+feel the warmth of my tribe
+sometimes it's the ashes that remain (in your soul)
+when you notice only flaws 
+internal cause - heavy toll paid 
+
+all i want is you
+beautiful dark world 
+
+let us live in cold
+until our souls are through 
+i swear on both our lives
+upping gear will bring the light close 
+bring the light (to us)
+that's when the colours come out
+bring the light close aye
 
 nothing works mate, kinda get hysterical
 i need breaking things when I steer myself
@@ -106,25 +142,6 @@ sometimes new (?)
  
 when I steer myself
 sometimes new
-
-heavy toll paid all i want is you
-let us live in colorized world
-till both our souls are through
-just to grasp the heart of ice
-feel the warmth of my tribe
-sometimes it's the ashes that remain (in your soul)
-when you notice only flaws 
-internal cause - 
-heavy toll paid 
-
-all i want is you
-beautiful dark world let us live in cold
-until our souls are through 
-i swear on both our lives
-upping gear will bring the light close 
-bring the light (to us)
-that's when the colours come out
-bring the light close aye
 
 
 <the singing part>yee eeee uuuu-uuuuuuu
