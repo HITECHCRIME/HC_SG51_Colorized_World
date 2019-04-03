@@ -74,13 +74,12 @@ expect a diss
 in the end
 such a lowlife
 
-x
-x
-x
-x
-x
-x
-
+nothing works mate, kinda get hysterical
+i need breaking things when I steer myself
+sometimes new (?)
+ 
+when I steer myself
+sometimes new
 
 
 -----------------------------------------------------
