@@ -175,7 +175,7 @@ decent neutral
 anything ?
 
 -----------------------------------------------------
-
+SHORTEN IT ALL?
 [CHORUS 4]
 colorized world with no scars
 i only wanted no wars no fights
