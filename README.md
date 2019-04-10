@@ -6,11 +6,12 @@ Rich The Kid x Offset Type Beat - Peak
 
 ## Lyrics
 ```
+(aaaooooooooouuuu)
 colorized world
 colorized world
 (sing)
 
-(aaaaaaa)
+(aaaaaaa-aaaaaaaaaaaa-aaaaaaaaaaaauuuuuuuuuu)
 colorized world with no scars
 i only wanted no wars no fights
 no separate worlds aye
@@ -67,20 +68,21 @@ grand plan won't hit,
 no hard feelings
 truly telling 
 foretelling round the corner
-
-
 one twin flame is amidst (?)
-expect a diss
+i miss ya
+did anybody get it right yeah?
 
 in the end
 such a lowlife
+expect a diss
 
-nothing works mate, kinda get hysterical
+(autotune) nothing works mate, kinda get hysterical
 i need breaking things when I steer myself
 sometimes new (?)
  
 when I steer myself
 sometimes new
+(autotune)
 
 
 -----------------------------------------------------
@@ -117,9 +119,11 @@ say it i have no life
 such a lowlife
 ya
 
-heavy toll paid all i want is you
+
 
 all i want is you
+heavy toll paid 
+all you are but
 let us live in colorized world
 
 till both our souls are through
@@ -142,6 +146,18 @@ beautiful dark world
 let us live in cold
 until our souls are through 
 i swear on our both lives
+
+
+might as frog ana neyya 
+booorii
+i don't wanna nod 
+i'm not so mad 
+to not
+get it right
+
+no don't
+rush aye
+
 upping gear will bring the light close 
 bring the light (to us)
 
