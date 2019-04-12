@@ -55,8 +55,8 @@ let us live in cold
 until our souls are through 
 i swear on our both lives
 
-colorized 
-colorized world
+(colorized 
+colorized world)
 
 x
 x
@@ -79,7 +79,7 @@ x
 x
 x
 
-(yaaaaoooo)
+(yaaaaooooooooo-ooooouuuuuuuuuu)
 
 that's what's left to miss 
 grand plan won't hit, no hard feelings
@@ -105,71 +105,11 @@ the chosen, so fast to reap
 painting grey on a masterpiece
 seeking all the waste among order
 4 and 20 deep, throttle fully bent
-round my knees
+round my knees (down my knees?)
 
 -----------------------------------------------------
 
 [VERSE 2]
-
-
-
------------------------------------------------------
-
-colorized world with no scars
-i only wanted no wars no fights
-no separate worlds aye
-(events)
-
-[CHORUS 3]
-colorized world with no scars
-i only wanted no wars no fights
-no separate worlds aye ya (reverb)
-
-often words make our dimensions feel cold
-i don't feel a thing is what i tell myself 
-every day ya (reverb)
-
-
------------------------------------------------------
-
-
-
-
-
-
-upping gear will bring the light close 
-bring the light (to us)
-
-that's when the colours come out
-bring the light close aye
-
-(fades)
-
-upping gear will bring the light close 
-bring the light (to us)
-
-that's when the colours come out
-bring the light close aye
-
-<the singing part>yee eeee uuuu-uuuuuuu (annfran)
-
-
-nothing works mate, kinda get hysterical
-i need breaking things when I steer myself
-sometimes new (?)
- 
-when I steer myself
-sometimes new
-
-(1/10th part from the back)
-ann fran finale
-
-
-
-
-decent neutral
-anything ?
-
 make it clear to trust me 
 i say, say it - through the tears hun ------------(yeah)
 - then again twin soul seperate flames
@@ -182,6 +122,9 @@ own charge own retreat, steady ground
 i have no words other than be in peace 
 let me be in peace, rest in peace yeah
 
+(colorized
+colorized world)
+
 might as frog ana neyya 
 booorii
 i don't wanna nod 
@@ -192,7 +135,47 @@ get it right
 no don't
 rush aye
 
+upping gear will bring the light close 
+bring the light (to us)
+
+that's when the colours come out
+bring the light close aye
+
+(fades)
+
+upping gear will bring the light close 
+bring the light (to us) that's when the colours come out
+bring the light close aye
+
+<the singing part>yee eeee uuuu-uuuuuuu (annfran)
+
 -----------------------------------------------------
+
+[CHORUS]
+colorized world with no scars
+i only wanted no wars no fights
+no separate worlds aye ya
+
+often words make our dimensions feel cold
+i don't feel a thing is what i tell myself 
+every day ya
+
+preach words, they don't mean a thing
+same thing not to everyone just for you
+the chosen, so fast to reap
+
+painting grey on a masterpiece
+seeking all the waste among order
+4 and 20 deep, throttle fully bent
+round my knees (down my knees?)
+
+
+
+N O T E S
+
+decent neutral
+anything ?
+
 SHORTEN IT ALL?
 [CHORUS 4]
 colorized world with no scars
@@ -205,13 +188,6 @@ every day ya (reverb)
 
 chorus again fades out into silence
 
-
-
-
-
-
-
-
 in the end
 such a lowlife
 expect a diss
@@ -223,6 +199,16 @@ sometimes new (?)
 when I steer myself
 sometimes new
 (autotune)
+
+nothing works mate, kinda get hysterical
+i need breaking things when I steer myself
+sometimes new (?)
+ 
+when I steer myself
+sometimes new
+
+(1/10th part from the back)
+ann fran finale
 
 ```
 
