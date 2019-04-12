@@ -73,11 +73,10 @@ authorized drugs with no card sign
 ending wanted not bad say it 
 i have no life such a lowlife ya
 
-x
-x
-x
-x
-x
+upping gear will bring the light close 
+bring the light (to us)
+that's when the colours come out
+bring the light close aye
 
 (yaaaaooooooooo-ooooouuuuuuuuuu)
 
