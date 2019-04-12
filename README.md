@@ -25,9 +25,6 @@ often words make our dimensions feel cold
 i don't feel a thing is what i tell myself 
 every day ya
 
------------------------------------------------------
-
-[VERSE 1]
 preach words, they don't mean a thing
 same thing not to everyone just for you ///// same thing not to you, just everyone ///// 
 the chosen, so fast to reap ya
@@ -36,18 +33,36 @@ seeking all the waste among order (20/20)
 4 and 20 deep, throttle fully bent
 round my knees
 
-make it clear to trust me 
-i say, say it - through the tears hun ------------(yeah)
-- then again twin soul seperate flames
-different vector's where the hate resides
-no simple mind who knows it, weapons drawn next-------(annuls it)
-what day'll bring ------------------(it was day'll) (this is) should (long)
-no hidden layers just the grief
-truly only thing is my own cause 
-own charge own retreat, steady ground
-i have no words other than be in peace 
-let me be in peace, rest in peace yeah
+[VERSE 1]
 
+heavy toll paid 
+all i want is you
+all you are but
+let us live in colorized world
+
+till both our souls are through
+just to grasp the heart of ice, melting thrice
+feel the vibe warmth, calm of my tribe's might
+sometimes it's the ashes that remain (in your soul)
+when you notice 
+
+only flaws 
+inner cause 
+
+internal
+
+heavy toll paid,  
+feeling raw weight
+
+heavy toll paid all i want is you
+beautiful dark world 
+
+let us live in cold
+until our souls are through 
+i swear on our both lives
+
+colorized world 
+colorized world
 
 -----------------------------------------------------
 
@@ -121,42 +136,7 @@ ya
 
 
 
-all i want is you
-heavy toll paid 
-all you are but
-let us live in colorized world
 
-till both our souls are through
-just to grasp the heart of ice, melting thrice
-feel the vibe warmth, calm of my tribe's might
-sometimes it's the ashes that remain (in your soul)
-when you notice 
-
-only flaws 
-inner cause 
-
-internal
-
-heavy toll paid,  
-feeling raw weight
-
-heavy toll paid all i want is you
-beautiful dark world 
-
-let us live in cold
-until our souls are through 
-i swear on our both lives
-
-
-might as frog ana neyya 
-booorii
-i don't wanna nod 
-i'm not so mad 
-to not
-get it right
-
-no don't
-rush aye
 
 upping gear will bring the light close 
 bring the light (to us)
@@ -190,6 +170,28 @@ ann fran finale
 
 decent neutral
 anything ?
+
+make it clear to trust me 
+i say, say it - through the tears hun ------------(yeah)
+- then again twin soul seperate flames
+different vector's where the hate resides
+no simple mind who knows it, weapons drawn next-------(annuls it)
+what day'll bring ------------------(it was day'll) (this is) should (long)
+no hidden layers just the grief
+truly only thing is my own cause 
+own charge own retreat, steady ground
+i have no words other than be in peace 
+let me be in peace, rest in peace yeah
+
+might as frog ana neyya 
+booorii
+i don't wanna nod 
+i'm not so mad 
+to not
+get it right
+
+no don't
+rush aye
 
 -----------------------------------------------------
 SHORTEN IT ALL?
