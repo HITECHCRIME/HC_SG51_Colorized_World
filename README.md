@@ -55,7 +55,7 @@ let us live in cold
 until our souls are through 
 i swear on our both lives
 
-(colorized 
+(it's a colorized 
 colorized world)
 
 x
@@ -134,9 +134,8 @@ get it right
 no don't
 rush aye
 
-upping gear will bring the light close 
+upping gear will bring the light (close)
 bring the light (to us)
-
 that's when the colours come out
 bring the light close aye
 
