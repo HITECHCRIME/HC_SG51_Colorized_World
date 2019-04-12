@@ -16,7 +16,7 @@ colorized world with no scars
 i only wanted no wars no fights
 no separate worlds aye
 
-[CHORUS 1]
+[CHORUS]
 colorized world with no scars
 i only wanted no wars no fights
 no separate worlds aye ya
@@ -26,34 +26,28 @@ i don't feel a thing is what i tell myself
 every day ya
 
 preach words, they don't mean a thing
-same thing not to everyone just for you ///// same thing not to you, just everyone ///// 
-the chosen, so fast to reap ya
+same thing not to everyone just for you
+the chosen, so fast to reap
+
 painting grey on a masterpiece
-seeking all the waste among order (20/20)
+seeking all the waste among order
 4 and 20 deep, throttle fully bent
-round my knees
+round my knees (down my knees?)
 
 [VERSE 1]
-
-heavy toll paid 
-all i want is you
-all you are but
-let us live in colorized world
-
+heavy toll paid all i want is you
+all you are but let us live in colorized world
 till both our souls are through
+
 just to grasp the heart of ice, melting thrice
 feel the vibe warmth, calm of my tribe's might
-sometimes it's the ashes that remain (in your soul)
+sometimes it's the ashes that remain 
 when you notice 
 
-only flaws 
-inner cause 
-
-internal
-
+only flaws (in your soul)
+inner cause internal
 heavy toll paid,  
 feeling raw weight
-
 heavy toll paid all i want is you
 beautiful dark world 
 
@@ -61,43 +55,62 @@ let us live in cold
 until our souls are through 
 i swear on our both lives
 
-colorized world 
+colorized 
 colorized world
+
+x
+x
+x
+x
+x
+
+cauterized wound on diehards 
+always find ways to heal only wanted
+no masks no guides no secret moves aye 
+ya (reverb)
+
+authorized drugs with no card sign
+ending wanted not bad say it 
+i have no life such a lowlife ya
+
+x
+x
+x
+x
+x
+
+(yaaaaoooo)
+
+that's what's left to miss 
+grand plan won't hit, no hard feelings
+truly telling foretelling round the corner
+one twin flame is amidst
+(i miss ya, did anybody get it right yeah?)
 
 -----------------------------------------------------
 
-[CHORUS 2]
+[CHORUS]
 colorized world with no scars
 i only wanted no wars no fights
-no separate worlds aye ya (reverb)
+no separate worlds aye ya
 
 often words make our dimensions feel cold
 i don't feel a thing is what i tell myself 
-every day ya (reverb)
+every day ya
+
+preach words, they don't mean a thing
+same thing not to everyone just for you
+the chosen, so fast to reap
+
+painting grey on a masterpiece
+seeking all the waste among order
+4 and 20 deep, throttle fully bent
+round my knees
 
 -----------------------------------------------------
 
 [VERSE 2]
-that's what's left to miss 
-grand plan won't hit,
-no hard feelings
-truly telling 
-foretelling round the corner
-one twin flame is amidst (?)
-i miss ya
-did anybody get it right yeah?
 
-in the end
-such a lowlife
-expect a diss
-
-(autotune) nothing works mate, kinda get hysterical
-i need breaking things when I steer myself
-sometimes new (?)
- 
-when I steer myself
-sometimes new
-(autotune)
 
 
 -----------------------------------------------------
@@ -119,20 +132,6 @@ every day ya (reverb)
 
 -----------------------------------------------------
 
-[VERSE 3 - SIIMLAR TO CHORUS]
-cauterized wound
-on diehards 
-always find ways to heal  
-only wanted 
-no masks 
-no guides
-no secret moves aye 
-ya (reverb)
-authorized drugs with no card sign
-ending wanted not bad 
-say it i have no life 
-such a lowlife
-ya
 
 
 
@@ -205,6 +204,25 @@ i don't feel a thing is what i tell myself
 every day ya (reverb)
 
 chorus again fades out into silence
+
+
+
+
+
+
+
+
+in the end
+such a lowlife
+expect a diss
+
+(autotune) nothing works mate, kinda get hysterical
+i need breaking things when I steer myself
+sometimes new (?)
+ 
+when I steer myself
+sometimes new
+(autotune)
 
 ```
 
