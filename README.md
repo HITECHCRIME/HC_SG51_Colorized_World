@@ -43,9 +43,10 @@ just to grasp the heart of ice, melting thrice
 feel the vibe warmth, calm of my tribe's might
 sometimes it's the ashes that remain 
 when you notice 
-
 only flaws (in your soul)
-inner cause internal
+inner cause 
+
+internal
 heavy toll paid,  
 feeling raw weight
 heavy toll paid all i want is you
@@ -58,7 +59,7 @@ i swear on our both lives
 (it's a colorized 
 colorized world)
 
-x
+steer myself sometimes new
 x
 x
 x
@@ -121,6 +122,7 @@ own charge own retreat, steady ground
 i have no words other than be in peace 
 let me be in peace, rest in peace yeah
 
+it's a
 (colorized
 colorized world)
 
