@@ -20,38 +20,40 @@ no separate worlds aye
 colorized world with no scars
 i only wanted no wars no fights
 no separate worlds aye ya
-
 often words make our dimensions feel cold
 i don't feel a thing is what i tell myself 
 every day ya
-
 preach words, they don't mean a thing
 same thing not to everyone just for you
 the chosen, so fast to reap
-
 painting grey on a masterpiece
 seeking all the waste among order
 4 and 20 deep, throttle fully bent
 round my knees (down my knees?)
 
 [VERSE 1]
+null void to fill in your head - breathe
+please breathe - let me guess
+i swear on our both lives
+just to grasp the heart of ice, melting thrice (dark)
+feel the vibe's warmth, calm of my tribe's might
+sometimes it's the ashes 
+when you notice 
+only flaws (in your soul)
+that remain 
+inner cause 
+
+
 let us live in cold
 until our souls are through 
 i swear on our both lives
-
-just to grasp the heart of ice, melting thrice
-feel the vibe warmth, calm of my tribe's might
-sometimes it's the ashes 
-that remain 
-when you notice 
-only flaws (in your soul)
-inner cause 
 
 internal
 heavy toll paid,  
 feeling raw weight
 heavy toll paid all i want is you
 beautiful dark world 
+
 
 let us live in cold
 until our souls are through 
@@ -60,6 +62,9 @@ i swear on our both lives
 heavy toll paid all i want is you
 all you are but let us live in colorized world
 till both our souls are through
+
+look in my eyes 
+tell me your not seeing grey
 
 (it's a colorized 
 colorized world)
