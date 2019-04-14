@@ -26,7 +26,7 @@ i don't feel a thing is what i tell myself
 every day ya
 
 preach words, they don't mean a thing
-same thing not to everyone just for you (me)
+same thing not to everyone just for you
 the chosen, so fast to reap
 painting grey on a masterpiece
 seeking all the waste among order
@@ -34,44 +34,39 @@ seeking all the waste among order
 
 [VERSE 1]
 throttle fully bent, null void 
-to fill my head - breathe
+heavy toll paid to fill my head - breathe
 with one breath and sight i come alive
-let me guess as i swear on our both lives
-i 
-(just to grasp the heart it will melt its dark)
+feeling someone's drive, purpose tracking active
+let me guess as i swear on both our lives
+(just to grasp the heart of ice it will melt its dark)
 just to grasp the heart of ice, melt its dark (melting thrice) (dark)
-feeling the warmth of my tribe, same species, our rarest kind
+feel the warmth of my tribe, same species, rarest kind
 feel(ing) the vibe's warmth, calm of my tribe's might
-flame of the spirits ages old - sometimes 
+flame of the spirits ages old - rest sometimes 
 it's the ashes when you notice only flaws (in your soul)
 inner cause, it's the digits that remain
-
-arm yourself with courage to see it through
-look into my eyes tell me your not seeing grey
 through your specters i emerge
 eye to eye, laser line of sight, 
 line of understanding 
 connection is still stable 
 when you watch me 
-steer myself sometimes new
+steer myself sometimes new 
+armed yourself with courage to see it through
+look into my eyes tell me your not seeing grey
+internal beautiful dark world 
+raw energy in weight
+(feeling raw weight)
 
-let us live in cold
-until our souls are through 
-i swear on our both lives
-
-internal
-heavy toll paid,  
-feeling raw weight
-heavy toll paid all i want is you
-beautiful dark world 
-
-let us live in cold
-until our souls are through 
-i swear on our both lives
-
-heavy toll paid all i want is you
+(heavy toll paid all i want is you
 all you are but let us live in colorized world
-till both our souls are through
+till our souls are through)
+
+let us live in cold
+until our souls are through 
+i swear on our both lives
+upping gear brings the light - close 
+brings the light - to us
+that's when the colours come out
 
 (it's a colorized 
 colorized world)
