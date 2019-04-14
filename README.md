@@ -35,8 +35,9 @@ round my knees (down my knees?)
 null void to fill in your head - breathe
 please breathe - let me guess
 i swear on our both lives
+(just to grasp the heart will it melt its dark)
 just to grasp the heart of ice, melt its dark (melting thrice) (dark)
-feel the vibe's warmth, calm of my tribe's might
+feel(ing) the vibe's warmth, calm of my tribe's might
 flame of the ages old spirits sometimes 
 it's the ashes when you notice only flaws (in your soul)
 inner cause, it's the digits that remain, 
