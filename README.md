@@ -62,29 +62,25 @@ filled with hope
 all you are but let us live in colorized world
 till our souls are through)
 
+(it's a colorized 
+colorized world)
+
 let us live in cold
 until our souls are through 
 i swear on our both lives
 upping gear brings the light - close 
 brings the light - to us
 that's when the colours come out
+retina's warped, still going forward
+even bent
 
-(it's a colorized 
-colorized world)
-
-
-x
-x
-x
-x
-
-cauterized wound on diehards 
+cauterized wounds on diehards 
 always find ways to heal only wanted
 no masks no guides no secret moves aye 
 ya (reverb)
 
 authorized drugs with no card sign
-ending wanted not bad say it 
+ending wanted not bad they used to say (say it)
 i have no life such a lowlife ya
 
 upping gear brings the light - close 
@@ -130,9 +126,11 @@ i say, say it - through the tears hun ------------(yeah)
 different vector's where the hate resides
 no simple mind who knows it, weapons drawn next-------(annuls it)
 what day'll bring ------------------(it was day'll) (this is) should (long)
+
 no hidden layers just the grief
 truly only thing is my own cause 
-own charge own retreat, steady ground
+own charge own retreat - steady ground
+
 i have no words other than be in peace 
 let me be in peace, rest in peace yeah
 
@@ -150,8 +148,8 @@ get it right
 no don't
 rush aye
 
-upping gear will bring the light (close)
-bring the light (to us)
+upping gear brings the light - close 
+brings the light - to us)
 that's when the colours come out
 bring the light close aye
 
