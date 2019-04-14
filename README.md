@@ -54,7 +54,8 @@ steer myself sometimes new
 armed yourself with courage to see it through
 look into my eyes tell me your not seeing grey
 internal beautiful dark world 
-raw energy in weight
+your raw energy in weight
+filled with hope
 (feeling raw weight)
 
 (heavy toll paid all i want is you
