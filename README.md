@@ -35,14 +35,19 @@ round my knees (down my knees?)
 null void to fill in your head - breathe
 please breathe - let me guess
 i swear on our both lives
-just to grasp the heart of ice, melting thrice (dark)
+just to grasp the heart of ice, melt its dark (melting thrice) (dark)
 feel the vibe's warmth, calm of my tribe's might
-sometimes it's the ashes 
-when you notice 
-only flaws (in your soul)
-that remain 
-inner cause 
+flame of the ages old spirits sometimes 
+it's the ashes when you notice only flaws (in your soul)
+inner cause, it's the digits that remain, 
 
+arm yourself with courage to see through
+look into my eyes tell me your not seeing grey
+through your specters your emerge
+eye to eye, laser line of sight, 
+line of understanding 
+connection stable 
+steer myself sometimes new
 
 let us live in cold
 until our souls are through 
@@ -54,7 +59,6 @@ feeling raw weight
 heavy toll paid all i want is you
 beautiful dark world 
 
-
 let us live in cold
 until our souls are through 
 i swear on our both lives
@@ -63,13 +67,10 @@ heavy toll paid all i want is you
 all you are but let us live in colorized world
 till both our souls are through
 
-look in my eyes 
-tell me your not seeing grey
-
 (it's a colorized 
 colorized world)
 
-steer myself sometimes new
+
 x
 x
 x
