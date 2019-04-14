@@ -20,34 +20,39 @@ no separate worlds aye
 colorized world with no scars
 i only wanted no wars no fights
 no separate worlds aye ya
+
 often words make our dimensions feel cold
 i don't feel a thing is what i tell myself 
 every day ya
+
 preach words, they don't mean a thing
-same thing not to everyone just for you
+same thing not to everyone just for you (me)
 the chosen, so fast to reap
 painting grey on a masterpiece
 seeking all the waste among order
-4 and 20 deep, throttle fully bent
-round my knees (down my knees?)
+4 and 20 deep round my knees (down my knees?)
 
 [VERSE 1]
-null void to fill in your head - breathe
-please breathe - let me guess
-i swear on our both lives
-(just to grasp the heart will it melt its dark)
+throttle fully bent, null void 
+to fill my head - breathe
+with one breath and sight i come alive
+let me guess as i swear on our both lives
+i 
+(just to grasp the heart it will melt its dark)
 just to grasp the heart of ice, melt its dark (melting thrice) (dark)
+feeling the warmth of my tribe, same species, our rarest kind
 feel(ing) the vibe's warmth, calm of my tribe's might
-flame of the ages old spirits sometimes 
+flame of the spirits ages old - sometimes 
 it's the ashes when you notice only flaws (in your soul)
-inner cause, it's the digits that remain, 
+inner cause, it's the digits that remain
 
-arm yourself with courage to see through
+arm yourself with courage to see it through
 look into my eyes tell me your not seeing grey
-through your specters your emerge
+through your specters i emerge
 eye to eye, laser line of sight, 
 line of understanding 
-connection stable 
+connection is still stable 
+when you watch me 
 steer myself sometimes new
 
 let us live in cold
