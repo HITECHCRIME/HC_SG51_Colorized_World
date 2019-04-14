@@ -35,13 +35,14 @@ seeking all the waste among order
 round my knees (down my knees?)
 
 [VERSE 1]
-heavy toll paid all i want is you
-all you are but let us live in colorized world
-till both our souls are through
+let us live in cold
+until our souls are through 
+i swear on our both lives
 
 just to grasp the heart of ice, melting thrice
 feel the vibe warmth, calm of my tribe's might
-sometimes it's the ashes that remain 
+sometimes it's the ashes 
+that remain 
 when you notice 
 only flaws (in your soul)
 inner cause 
@@ -55,6 +56,10 @@ beautiful dark world
 let us live in cold
 until our souls are through 
 i swear on our both lives
+
+heavy toll paid all i want is you
+all you are but let us live in colorized world
+till both our souls are through
 
 (it's a colorized 
 colorized world)
@@ -74,9 +79,10 @@ authorized drugs with no card sign
 ending wanted not bad say it 
 i have no life such a lowlife ya
 
-upping gear will bring the light close 
-bring the light (to us)
+upping gear brings the light - close 
+brings the light - to us)
 that's when the colours come out
+
 bring the light close aye
 
 (yaaaaooooooooo-ooooouuuuuuuuuu)
