@@ -31,6 +31,8 @@ JUST FOR YOU THE CHOSEN, SO FAST TO REAP
 PAINTING GREY ON A MASTERPIECE
 SEEKING ALL THE WASTE AMONG ORDER
 4 AND 20 DEEP, DOWN MY KNEES
+
+------------------------------------------------
  
 [VERSE 1]
 trust your (+) own drive
@@ -110,7 +112,7 @@ truly telling foretelling round the corner
 one twin flame is amidst
 (i miss ya, did anybody get it right yeah?)
 
------------------------------------------------------
+------------------------------------------------
 
 [CHORUS]
 COLORIZED WORLD WITH NO SCARS
@@ -129,7 +131,7 @@ PAINTING GREY ON A MASTERPIECE
 SEEKING ALL THE WASTE AMONG ORDER
 4 AND 20 DEEP, THROTTLE BENT DOWN MY KNEES
 
------------------------------------------------------
+------------------------------------------------
 
 [VERSE 2]
 MAKE IT CLEAR TO TRUST ME I SAY
@@ -174,7 +176,7 @@ so bring the light close to me aye
 
 <the singing part>yee eeee uuuu-uuuuuuu (annfran)
 
------------------------------------------------------
+------------------------------------------------
 
 [CHORUS]
 COLORIZED WORLD WITH NO SCARS
@@ -192,6 +194,8 @@ THE CHOSEN, SO FAST TO REAP
 PAINTING GREY ON A MASTERPIECE
 SEEKING ALL THE WASTE AMONG ORDER
 4 AND 20 DEEP, THROTTLE BENT DOWN MY KNEES
+
+------------------------------------------------
 
 
 
