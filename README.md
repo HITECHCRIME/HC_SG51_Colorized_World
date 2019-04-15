@@ -41,7 +41,8 @@ eye to eye, laser line of sight
 
 line of understanding 
 throttle fully bent
-with one sight and breath come alive
+
+with one blink and breath come alive
 - heavy toll paid 
 no null void fill my head (breathe)
 
