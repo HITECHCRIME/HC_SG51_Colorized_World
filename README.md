@@ -57,7 +57,8 @@ it will melt the dark inside
 
 calm of my tribe's might
 flame of spirits ages old 
-rest sometimes 
+rest sometimes yeah
+
 it's the digits 
 that remain, inner cause
 
