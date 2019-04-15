@@ -50,8 +50,8 @@ round my knees (down my knees?)
  
 [VERSE 1]
 
-trust your own drive
 purpose tracking active
+trust your own drive
 swear on both our lives
 through the specters i emerge
 eye to eye
@@ -59,7 +59,7 @@ eye to eye
 laser line of sight
 line of understanding 
 throttle fully bent
-with one blink and breath (refraction)
+with one word and breath (refraction)
 come alive yeah
 
 heavy toll paid 
@@ -68,6 +68,7 @@ same species, rarest kind (i vow)
 
 just to grasp the heart of ice 
 it will melt the dark inside
+
 
 calm of my tribe's might
 flame of spirits ages old 
