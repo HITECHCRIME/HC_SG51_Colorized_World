@@ -50,7 +50,7 @@ round my knees (down my knees?)
  
 [VERSE 1]
 
-trusting my own drive
+trust your own drive
 purpose tracking active
 swear on both our lives
 through the specters i emerge
@@ -74,9 +74,12 @@ flame of spirits ages old
 rest sometimes 
 it's the digits 
 that remain, inner cause
+
 you're in ashes 
 when you notice only flaws 
 (in your soul yeah)
+
+not to worry tho
 
 no grey void 
 to fill my head (breathe)
