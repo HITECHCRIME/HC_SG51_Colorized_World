@@ -35,36 +35,38 @@ SEEKING ALL THE WASTE AMONG ORDER
  
 [VERSE 1]
 
-purpose tracking active
 trust your own drive
+purpose tracking active
 swear on both our lives
 through the specters i emerge
-eye to eye you will keep me right
+eye to eye -  you will keep me right
 
 laser line of sight
 line of understanding 
 throttle fully bent
-with one word and breath (refraction)
-come alive yeah
+with one blink and breath (refraction)
+you'll come alive yeah
 
 heavy toll paid 
-when i feel the warmth of my tribe
+when you'll feel the warmth of my tribe
 same species, rarest kind (i vow)
 
 just to grasp the heart of ice 
 it will melt the dark inside
 
-
-calm of my tribe's might
+calm of my tribe's might (presence)
 flame of spirits ages old 
 rest sometimes yeah
 
 it's the digits 
-that remain, inner cause
+that remain, NO COLOURS, inner cause, 
 
-you're in ashes 
+YOUR'RE IN ASHES 
+WHEN YOU NOTICE ONLY FLAWS
+IN YOUR SOUL YEAH
+
 when you notice only flaws 
-(in your soul yeah)
+in your soul yeah
 
 not to worry tho
 you will keep me right
