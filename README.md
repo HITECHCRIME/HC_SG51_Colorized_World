@@ -33,34 +33,41 @@ seeking all the waste among order
 4 and 20 deep round my knees (down my knees?)
  
 [VERSE 1]
-throttle fully bent, null void
-with one breath and sight i come alive
-heavy toll paid to fill my head (breathe)
 
 feeling someone's drive, purpose tracking active
 let me guess as i swear on both our lives
-(just to grasp the heart of ice it will melt its dark)
-just to grasp the heart of ice, melt its dark (melting thrice) (dark)
-feel the warmth of my tribe, same species, rarest kind
-
-feel(ing) the vibe's warmth, calm of my tribe's might
-flame of the spirits ages old - rest sometimes 
-it's the ashes when you notice only flaws (in your soul)
-inner cause, it's the digits that remain
-
 through your specters i emerge
 eye to eye, laser line of sight
 
 line of understanding 
-connection is still stable 
-when you watch me 
-steer myself sometimes new 
-armed yourself with courage to see it through
+throttle fully bent
+with one sight and breath come alive
+- heavy toll paid 
+no null void fill my head (breathe)
+
+let me guess when you feel the tribe's warmth tribe
+same species, rarest kind
+just to grasp the heart of ice will it melt the dark
+feel the vibe's warmth, calm of my tribe's might
+flame of spirits ages old - rest sometimes 
+it's the ashes when you notice only flaws (in your soul)
+it's the digits that remain, inner cause
+
+
+armed with courage to see it through
 look into my eyes tell me your not seeing grey
+your energy raw in weight
 internal beautiful dark world 
-your raw energy in weight
 filled with hope
+
 (feeling raw weight)
+
+
+ 
+
+
+
+
 
 (heavy toll paid all i want is you
 all you are but let us live in colorized world
@@ -253,6 +260,11 @@ sometimes new
 
 (1/10th part from the back)
 ann fran finale
+
+steer myself sometimes new 
+just to grasp the heart of ice, melt its dark (melting thrice) (dark)
+connection stable 
+when you watch me 
 
 ```
 
