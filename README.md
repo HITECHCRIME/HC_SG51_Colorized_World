@@ -12,59 +12,80 @@ colorized world
 (sing)
 
 (aaaaaaa-aaaaaaaaaaaa-aaaaaaaaaaaauuuuuuuuuu)
-colorized world with no scars
-i only wanted no wars no fights
-no separate worlds aye
+colorized world 
+with no scars
+i only wanted 
+no wars no fights
+no separate worlds 
+aye
 
 [CHORUS]
-colorized world with no scars
-i only wanted no wars no fights
-no separate worlds aye ya
+colorized world 
+with no scars
+i only wanted 
+no wars no fights
+no separate worlds 
+aye ya
 
-often words make our dimensions feel cold
-i don't feel a thing is what i tell myself 
+often words make 
+our dimensions 
+feel cold
+i don't feel a thing 
+is what i tell myself 
 every day ya
 
-preach words, they don't mean a thing
-same thing not to everyone just for you
-the chosen, so fast to reap
-painting grey on a masterpiece
-seeking all the waste among order
-4 and 20 deep round my knees (down my knees?)
+preach words, 
+they don't mean a thing
+same thing 
+not to everyone 
+just for you
+the chosen, 
+so fast to reap
+painting grey 
+on a masterpiece
+seeking all the waste 
+among order
+4 and 20 deep 
+round my knees (down my knees?)
  
 [VERSE 1]
 
-feeling someone's drive, purpose tracking active
-let me guess as i swear on both our lives
-through your specters i emerge
-eye to eye, laser line of sight
+trusting my own drive
+purpose tracking active
+swear on both our lives
+through the specters i emerge
+eye to eye
 
+laser line of sight
 line of understanding 
 throttle fully bent
+with one blink and breath (refraction)
+come alive yeah
 
-with one blink and breath come alive
-- heavy toll paid 
-no null void fill my head (breathe)
+heavy toll paid 
+when i feel the warmth of my tribe
+same species, rarest kind (i vow)
 
-let me guess when you feel the tribe's warmth tribe
-same species, rarest kind
-just to grasp the heart of ice will it melt the dark
-feel the vibe's warmth, calm of my tribe's might
-flame of spirits ages old - rest sometimes 
-it's the ashes when you notice only flaws (in your soul)
-it's the digits that remain, inner cause
+just to grasp the heart of ice 
+it will melt the dark inside
 
-
-armed with courage to see it through
-look into my eyes tell me your not seeing grey
-your energy raw in weight
-internal beautiful dark world 
-filled with hope
-
-(feeling raw weight)
+calm of my tribe's might
+flame of spirits ages old 
+rest sometimes 
+it's the digits 
+that remain, inner cause
+it's the ashes 
+when you notice only flaws 
+(in your soul yeah)
 
 
- 
+
+
+
+
+
+no grey void 
+to fill my head (breathe)
 
 
 
@@ -84,7 +105,7 @@ upping gear brings the light - close
 brings the light - to us
 that's when the colours come out
 retina's warped, still going forward
-even bent
+bleeding from my thoughts
 
 cauterized wounds on diehards 
 always find ways to heal only wanted
@@ -97,11 +118,18 @@ i have no life such a lowlife ya
 
 upping gear will bring the light - close 
 brings the light to us
-that's when the colours come out
-bring the light close aye
+that's when the truest colours come out
+so bring the light close to me aye
 
 (yaaaaooooooooo-ooooouuuuuuuuuu)
 
+armed with courage 
+see it through
+look into my eyes 
+your not seeing grey
+your energy raw in weight
+internal beautiful dark world 
+filled with hope
 that's what's left to miss 
 grand plan won't hit, no hard feelings
 truly telling foretelling round the corner
