@@ -7,46 +7,31 @@ Rich The Kid x Offset Type Beat - Peak
 ## Lyrics
 ```
 (aaaooooooooouuuu)
-colorized world
-colorized world
+COLORIZED WORLD
+COLORIZED WORLD 
 (sing)
 
 (aaaaaaa-aaaaaaaaaaaa-aaaaaaaaaaaauuuuuuuuuu)
-colorized world 
-with no scars
-i only wanted 
-no wars no fights
-no separate worlds 
-aye
+COLORIZED WORLD WITH NO SCARS
+I ONLY WANTED NO WARS NO FIGHTS
+NO SEPARATE WORLDS AYE
 
 [CHORUS]
-colorized world 
-with no scars
-i only wanted 
-no wars no fights
-no separate worlds 
-aye ya
+COLORIZED WORLD WITH NO SCARS
+I ONLY WANTED NO WARS NO FIGHTS
+NO SEPARATE WORLDS AYE YA
 
-often words make 
-our dimensions 
-feel cold
-i don't feel a thing 
-is what i tell myself 
-every day ya
+OFTEN WORDS MAKE OUR DIMENSIONS 
+FEEL COLD I DON'T FEEL A THING 
+IS WHAT I TELL MYSELF EVERY DAY YA
 
-preach words, 
-they don't mean a thing
-same thing 
-not to everyone 
-just for you
-the chosen, 
-so fast to reap
-painting grey 
-on a masterpiece
-seeking all the waste 
-among order
-4 and 20 deep 
-round my knees (down my knees?)
+PREACH WORDS, THEY DON'T MEAN A THING
+SAME THING, NOT TO EVERYONE JUST FOR YOU
+THE CHOSEN, SO FAST TO REAP
+
+PAINTING GREY ON A MASTERPIECE
+SEEKING ALL THE WASTE AMONG ORDER
+4 AND 20 DEEP, THROTTLE BENT DOWN MY KNEES
  
 [VERSE 1]
 
@@ -54,7 +39,7 @@ purpose tracking active
 trust your own drive
 swear on both our lives
 through the specters i emerge
-eye to eye
+eye to eye you will keep me right
 
 laser line of sight
 line of understanding 
@@ -81,6 +66,7 @@ when you notice only flaws
 (in your soul yeah)
 
 not to worry tho
+you will keep me right
 
 no grey void 
 to fill my head (breathe)
@@ -105,14 +91,14 @@ that's when the colours come out
 retina's warped, still going forward
 bleeding from my thoughts
 
-cauterized wounds on diehards 
-always find ways to heal only wanted
-no masks no guides no secret moves aye 
-ya (reverb)
+CAUTERIZED WOUNDS ON DIEHARDS 
+ALWAYS FIND A WAY TO HEAL 
+ONLY WANTED NO MASKS NO GUIDE
+NO SECRET MOVES AYE YA
 
-authorized drugs with no card sign
-ending wanted not bad they used to say (say it)
-i have no life such a lowlife ya
+AUTHORIZED DRUGS WITH NO CARD SIGN
+ENDING WANTED NOT BAD, USED TO SAY
+I HAVE NO LIFE, SUCH A LOWLIFE YA
 
 upping gear will bring the light - close 
 brings the light to us
@@ -137,39 +123,38 @@ one twin flame is amidst
 -----------------------------------------------------
 
 [CHORUS]
-colorized world with no scars
-i only wanted no wars no fights
-no separate worlds aye ya
+COLORIZED WORLD WITH NO SCARS
+I ONLY WANTED NO WARS NO FIGHTS
+NO SEPARATE WORLDS AYE YA
 
-often words make our dimensions feel cold
-i don't feel a thing is what i tell myself 
-every day ya
+OFTEN WORDS MAKE OUR DIMENSIONS 
+FEEL COLD I DON'T FEEL A THING 
+IS WHAT I TELL MYSELF EVERY DAY YA
 
-preach words, they don't mean a thing
-same thing not to everyone just for you
-the chosen, so fast to reap
+PREACH WORDS, THEY DON'T MEAN A THING
+SAME THING, NOT TO EVERYONE JUST FOR YOU
+THE CHOSEN, SO FAST TO REAP
 
-painting grey on a masterpiece
-seeking all the waste among order
-4 and 20 deep, throttle fully bent
-round my knees (down my knees?)
+PAINTING GREY ON A MASTERPIECE
+SEEKING ALL THE WASTE AMONG ORDER
+4 AND 20 DEEP, THROTTLE BENT DOWN MY KNEES
 
 -----------------------------------------------------
 
 [VERSE 2]
-make it clear to trust me 
-i say, say it - through the tears hun ------------(yeah)
-- then again twin soul seperate flames
-different vector's where the hate resides
-no simple mind who knows it, weapons drawn next-------(annuls it)
-what the day'll bring ------------------(it was day'll) (this is) should (long)
+MAKE IT CLEAR TO TRUST ME I SAY
+SAY IT THROUGH THE TEARS YEAH (hun)
+- THEN AGAIN TWIN SOULS SEPERATE FLAMES
 
-no hidden layers just the grief
-truly only thing is my own cause 
-own charge own retreat - steady ground
+DIFFERENT VECTOR'S WHERE THE HATE RESIDES
+NO SIMPLE MIND WHO KNOWS IT, WEAPONS DRAWN TO (annuls it)
+WHAT THE DAY'LL BRING (it was day'll) (this is) should (long)
 
-i have no words other than be in peace 
-let me be in peace, rest in peace yeah
+NO HIDDEN LAYERS JUST THE GRIEF
+TRULY ONLY THINGS IS MY OWN CAUSE 
+OWN CHARGE OWN RETREAT - STEADY GROUND
+I HAVE NO WORDS OTHER THAN BE IN PEACE 
+LET ME BE IN PEACE, REST IN PEACE YEAH
 
 it's a
 (colorized
@@ -202,22 +187,21 @@ so bring the light close to me aye
 -----------------------------------------------------
 
 [CHORUS]
-colorized world with no scars
-i only wanted no wars no fights
-no separate worlds aye ya
+COLORIZED WORLD WITH NO SCARS
+I ONLY WANTED NO WARS NO FIGHTS
+NO SEPARATE WORLDS AYE YA
 
-often words make our dimensions feel cold
-i don't feel a thing is what i tell myself 
-every day ya
+OFTEN WORDS MAKE OUR DIMENSIONS 
+FEEL COLD I DON'T FEEL A THING 
+IS WHAT I TELL MYSELF EVERY DAY YA
 
-preach words, they don't mean a thing
-same thing not to everyone just for you
-the chosen, so fast to reap
+PREACH WORDS, THEY DON'T MEAN A THING
+SAME THING, NOT TO EVERYONE JUST FOR YOU
+THE CHOSEN, SO FAST TO REAP
 
-painting grey on a masterpiece
-seeking all the waste among order
-4 and 20 deep, throttle fully bent
-round my knees (down my knees?)
+PAINTING GREY ON A MASTERPIECE
+SEEKING ALL THE WASTE AMONG ORDER
+4 AND 20 DEEP, THROTTLE BENT DOWN MY KNEES
 
 
 
