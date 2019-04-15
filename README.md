@@ -26,47 +26,41 @@ FEEL COLD I DON'T FEEL A THING
 IS WHAT I TELL MYSELF EVERY DAY YA
 
 PREACH WORDS, THEY DON'T MEAN A THING
-SAME THING, NOT TO EVERYONE JUST FOR YOU
-THE CHOSEN, SO FAST TO REAP
-
+SAME THING, NOT TO EVERYONE 
+JUST FOR YOU THE CHOSEN, SO FAST TO REAP
 PAINTING GREY ON A MASTERPIECE
 SEEKING ALL THE WASTE AMONG ORDER
-4 AND 20 DEEP, THROTTLE BENT DOWN MY KNEES
+4 AND 20 DEEP, DOWN MY KNEES
  
 [VERSE 1]
 
-trust your own drive
+trust your ooown driiive
 purpose tracking active
-swear on both our lives
-through the specters i emerge
-eye to eye -  you will keep me right
+swear on both our lives 
+through the specters 
+i emerge eye to eye
 
 laser line of sight
 line of understanding 
 throttle fully bent
-with one blink and breath (refraction)
-you'll come alive yeah
+with one step and breath
+yeah - come alive
 
-heavy toll paid 
-when you'll feel the warmth of my tribe
-same species, rarest kind (i vow)
-
-just to grasp the heart of ice 
-it will melt the dark inside
-
-calm of my tribe's might (presence)
+heavy toll paid
+feel the calm warmth of my tribe (?)
+same species, rarest kind - ha!
+just to grasp the heart of ice - ya!
+it will melt the dark inside  - vow!
+my tribe's presence - inside!
 flame of spirits ages old 
-rest sometimes yeah
-
-it's the digits 
-that remain, NO COLOURS, inner cause, 
-
-YOUR'RE IN ASHES 
-WHEN YOU NOTICE ONLY FLAWS
+rest your head yeah
+OUT OF SPECTRUM, VIVID MEMORIES, 
+NO COLOURS YOU SAY? GOTTA HINT
+IT'S THE DIGITS THAT REMAIN, INNER CAUSE, 
+YOUR'RE IN ASHES WHEN YOU NOTICE ONLY FLAWS
 IN YOUR SOUL YEAH
-
-when you notice only flaws 
-in your soul yeah
+WHEN YOU NOTICE ONLY FLAWS 
+IN YOUR SOUL YEAH
 
 not to worry tho
 you will keep me right
@@ -78,9 +72,7 @@ to fill my head (breathe)
 
 
 
-(heavy toll paid all i want is you
-all you are but let us live in colorized world
-till our souls are through)
+
 
 (it's a colorized 
 colorized world)
@@ -280,6 +272,10 @@ steer myself sometimes new
 just to grasp the heart of ice, melt its dark (melting thrice) (dark)
 connection stable 
 when you watch me 
+
+(heavy toll paid all i want is you
+all you are but let us live in colorized world
+till our souls are through)
 
 ```
 
