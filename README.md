@@ -35,7 +35,7 @@ SEEKING ALL THE WASTE AMONG ORDER
 [VERSE 1]
 
 trust your ooown driiive
-purpose tracking active
+purpose tracking (- why not) active
 swear on both our lives 
 through the specters 
 i emerge eye to eye
@@ -43,19 +43,19 @@ i emerge eye to eye
 laser line of sight
 line of understanding 
 throttle fully bent
-with one step and breath
+(with) - one step and breath
 yeah - come alive
 
-heavy toll paid
-feel the calm warmth of my tribe (?)
-same species, rarest kind - ha!
-just to grasp the heart of ice - ya!
+HEAVY TOLL PAID
+FEEL THE - WARMTH OF MY TRIBE (?)
+SAME SPECIES, RAREST KIND - ha!
+JUST TO GRASP THE HEART OF ICE - ya!
 it will melt the dark inside  - vow!
-my tribe's presence - inside!
-flame of spirits ages old 
-rest your head yeah
+TRIBE'S PRESENCE CALMS, FLAME OF SPIRITS AGES OLD 
+rest your head sometimes yeah  (?)
 OUT OF SPECTRUM, VIVID MEMORIES, 
-NO COLOURS YOU SAY? GOTTA HINT
+GOT NO COLOURS GOTTA HINT
+
 IT'S THE DIGITS THAT REMAIN, INNER CAUSE, 
 YOUR'RE IN ASHES WHEN YOU NOTICE ONLY FLAWS
 IN YOUR SOUL YEAH
