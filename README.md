@@ -31,22 +31,26 @@ the chosen, so fast to reap
 painting grey on a masterpiece
 seeking all the waste among order
 4 and 20 deep round my knees (down my knees?)
-
+ 
 [VERSE 1]
-throttle fully bent, null void 
-heavy toll paid to fill my head - breathe
+throttle fully bent, null void
 with one breath and sight i come alive
+heavy toll paid to fill my head (breathe)
+
 feeling someone's drive, purpose tracking active
 let me guess as i swear on both our lives
 (just to grasp the heart of ice it will melt its dark)
 just to grasp the heart of ice, melt its dark (melting thrice) (dark)
 feel the warmth of my tribe, same species, rarest kind
+
 feel(ing) the vibe's warmth, calm of my tribe's might
 flame of the spirits ages old - rest sometimes 
 it's the ashes when you notice only flaws (in your soul)
 inner cause, it's the digits that remain
+
 through your specters i emerge
-eye to eye, laser line of sight, 
+eye to eye, laser line of sight
+
 line of understanding 
 connection is still stable 
 when you watch me 
@@ -83,10 +87,9 @@ authorized drugs with no card sign
 ending wanted not bad they used to say (say it)
 i have no life such a lowlife ya
 
-upping gear brings the light - close 
-brings the light - to us)
+upping gear will bring the light - close 
+brings the light to us
 that's when the colours come out
-
 bring the light close aye
 
 (yaaaaooooooooo-ooooouuuuuuuuuu)
@@ -184,6 +187,35 @@ round my knees (down my knees?)
 
 
 N O T E S
+
+throttle fully bent, null void 
+heavy toll paid to fill my head - breathe
+with one breath and sight i come alive
+feeling someone's drive, purpose tracking active
+let me guess as i swear on both our lives
+(just to grasp the heart of ice it will melt its dark)
+just to grasp the heart of ice, melt its dark (melting thrice) (dark)
+feel the warmth of my tribe, same species, rarest kind
+feel(ing) the vibe's warmth, calm of my tribe's might
+flame of the spirits ages old - rest sometimes 
+it's the ashes when you notice only flaws (in your soul)
+inner cause, it's the digits that remain
+through your specters i emerge
+eye to eye, laser line of sight, 
+line of understanding 
+connection is still stable 
+when you watch me 
+steer myself sometimes new 
+armed yourself with courage to see it through
+look into my eyes tell me your not seeing grey
+internal beautiful dark world 
+your raw energy in weight
+filled with hope
+(feeling raw weight)
+
+(heavy toll paid all i want is you
+all you are but let us live in colorized world
+till our souls are through)
 
 decent neutral
 anything ?
