@@ -74,15 +74,9 @@ flame of spirits ages old
 rest sometimes 
 it's the digits 
 that remain, inner cause
-it's the ashes 
+you're in ashes 
 when you notice only flaws 
 (in your soul yeah)
-
-
-
-
-
-
 
 no grey void 
 to fill my head (breathe)
@@ -164,7 +158,7 @@ i say, say it - through the tears hun ------------(yeah)
 - then again twin soul seperate flames
 different vector's where the hate resides
 no simple mind who knows it, weapons drawn next-------(annuls it)
-what day'll bring ------------------(it was day'll) (this is) should (long)
+what the day'll bring ------------------(it was day'll) (this is) should (long)
 
 no hidden layers just the grief
 truly only thing is my own cause 
@@ -187,16 +181,17 @@ get it right
 no don't
 rush aye
 
-upping gear brings the light - close 
-brings the light - to us)
-that's when the colours come out
-bring the light close aye
+upping gear will bring the light - close 
+brings the light to us
+that's when the truest colours come out
+so bring the light close to me aye
 
 (fades)
 
-upping gear will bring the light close 
-bring the light (to us) that's when the colours come out
-bring the light close aye
+upping gear will bring the light - close 
+brings the light to us
+that's when the truest colours come out
+so bring the light close to me aye
 
 <the singing part>yee eeee uuuu-uuuuuuu (annfran)
 
