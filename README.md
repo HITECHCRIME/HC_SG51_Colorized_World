@@ -132,14 +132,14 @@ rush aye
 upping gear will bring the light - close 
 brings the light to us
 that's when the truest colours come out
-so bring the light close to me aye
+so bring the flame close to me aye
 
 (fades)
 
 upping gear will bring the light - close 
 brings the light to us
 that's when the truest colours come out
-so bring the light close to me aye
+so bring the flame close to me aye
 
 <the singing part>yee eeee uuuu-uuuuuuu (annfran)
 
