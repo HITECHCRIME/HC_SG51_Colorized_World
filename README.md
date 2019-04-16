@@ -31,6 +31,12 @@ DOWN MY KNEES
 ------------------------------------------------
  
 [VERSE 1]
+CAUTERIZED WOUNDS ON DIEHARDS ALWAYS FIND A WAY TO HEAL 
+ONLY WANTED NO MASKS NO GUIDE NO SECRET MOVES AYE YA
+
+AUTHORIZED DRUGS WITH NO CARD SIGN ENDING WANTED NOT BAD, 
+USED TO SAY I HAVE NO LIFE, SUCH A LOWLIFE YA
+
 let us live in cold until our souls are through 
 upping gear brings the light - close 
 brings the light - to us
@@ -43,6 +49,7 @@ i emerge eye to eye
 
 laser line of sight, line of understanding 
 throttle fully bent with one step and breath
+
 yeah - come alive
 
 HEAVY TOLL PAID, FEEL THE CALM WARMTH OF MY TRIBE (?)
@@ -60,29 +67,9 @@ IN YOUR SOUL YEAH
 WHEN YOU NOTICE ONLY FLAWS 
 IN YOUR SOUL YEAH
 
-not to worry tho
-you will keep me right
-
-
 
 (it's a colorized 
 colorized world)
-
-NO GREY VOID
-TO FILL MY HEAD
-
-CAUTERIZED WOUNDS ON DIEHARDS ALWAYS FIND A WAY TO HEAL 
-ONLY WANTED NO MASKS NO GUIDE NO SECRET MOVES AYE YA
-
-AUTHORIZED DRUGS WITH NO CARD SIGN ENDING WANTED NOT BAD, 
-USED TO SAY I HAVE NO LIFE, SUCH A LOWLIFE YA
-
-upping gear will bring the light - close 
-brings the light to us
-that's when the truest colours come out
-so bring the light close to me aye
-
-(yaaaaooooooooo-ooooouuuuuuuuuu)
 
 armed with courage, see it through
 look into my eyes, your not spilling grey
@@ -92,6 +79,13 @@ that's what's left to miss, grand plan won't hit,
 no hard feelings,  truly telling foretelling 
 round the corner one twin flame is amidst
 (i miss ya, did anybody get it right yeah?)
+
+NO GREY VOID
+TO FILL MY HEAD
+not to worry tho
+you will keep me right
+
+(yaaaaooooooooo-ooooouuuuuuuuuu)
 
 ------------------------------------------------
 
