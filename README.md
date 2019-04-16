@@ -35,6 +35,14 @@ SEEKING ALL THE WASTE AMONG ORDER
 ------------------------------------------------
  
 [VERSE 1]
+let us live in cold
+until our souls are through 
+upping gear brings the light - close 
+brings the light - to us
+that's when the colours come out
+retina's warped, still going forward
+bleeding from my thoughts
+
 trust your (+) own drive
 purpose tracking (- why not) active
 swear on both our lives 
@@ -48,15 +56,14 @@ throttle fully bent
 yeah - come alive
 
 HEAVY TOLL PAID
-FEEL THE - WARMTH OF MY TRIBE (?)
+FEEL THE CALM WARMTH OF MY TRIBE (?)
 SAME SPECIES, RAREST KIND - ha!
 JUST TO GRASP THE HEART OF ICE - ya!
 it will melt the dark inside  - vow!
 TRIBE'S PRESENCE CALMS, FLAME OF SPIRITS AGES OLD 
 OUT OF SPECTRUM, VIVID MEMORIES, 
 GOT NO COLOURS GOTTA HINT
-rest your head sometimes yeah  (?)
-
+rest your head sometimes yeah  (?)  
 IT'S THE DIGITS THAT REMAIN, 
 INNER CAUSE, YOUR'RE IN ASHES 
 WHEN YOU NOTICE ONLY FLAWS
@@ -68,20 +75,13 @@ IN YOUR SOUL YEAH
 not to worry tho
 you will keep me right
 
-no grey void 
-to fill my head (breathe)
 
-let us live in cold
-until our souls are through 
-i swear on our both lives
-upping gear brings the light - close 
-brings the light - to us
-that's when the colours come out
-retina's warped, still going forward
-bleeding from my thoughts
 
 (it's a colorized 
 colorized world)
+
+no grey void 
+to fill my head (breathe)
 
 CAUTERIZED WOUNDS ON DIEHARDS 
 ALWAYS FIND A WAY TO HEAL 
