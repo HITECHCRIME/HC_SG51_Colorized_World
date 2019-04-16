@@ -48,25 +48,33 @@ I HAVE NO LIFE, SUCH A LOWLIFE YA
 let us live in cold until our souls are through 
 upping gear brings the light - close 
 brings the light - to us
-that's when the colours come out, retina's warped, 
 still going forward, bleeding from my thoughts
+that's when the colours come out, retina's warped
 
-trust your (+) _own drive, purpose tracking
-active swear on both our lives through the specters 
+trust your (+) _own drive
+purpose tracking active 
+swear on both our lives 
+through the specters 
 i emerge eye to eye
 
-laser line of sight, line of understanding 
-throttle fully bent with one step and breath (on a brink of death)
+laser line of sight, line of 
+understanding throttle fully bent 
+with one step and breath 
+(on a brink of death)
 
 yeah - come alive
 
-HEAVY TOLL PAID, FEEL THE CALM WARMTH OF MY TRIBE (?)
+HEAVY TOLL PAID, WHEN YOU FEEL 
+THE CALM WARMTH OF MY TRIBE (?)
+YOU'LL KNOW
 SAME SPECIES, RAREST KIND - ha!
 JUST TO GRASP THE HEART OF ICE - ya!
 it will melt the dark inside  - vow!
 
-TRIBE'S PRESENCE CALMS, FLAME OF SPIRITS AGES OLD 
-OUT OF SPECTRUM, VIVID MEMORY, GOT NO COLOURS GOTTA HINT
+TRIBE'S PRESENCE CALMS, FLAME OF 
+SPIRITS AGES OLD OUT OF SPECTRUM
+VIVID MEMORY, GOT NO COLOURS GOTTA HINT
+
 rest your head sometimes yeah  (?)  
 IT'S THE DIGITS THAT REMAIN, INNER CAUSE, 
 YOUR'RE IN ASHES WHEN YOU NOTICE ONLY FLAWS
