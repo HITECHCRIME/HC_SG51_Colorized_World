@@ -52,13 +52,18 @@ still going forward, bleeding from my thoughts
 that's when the colours come out, retina's warped
 
 trust your (+) _own drive
+
 purpose tracking active 
 swear on both our lives 
 through the specters 
-i emerge eye to eye
+i emerge 
+
+eye to eye
 
 laser line of sight, line of 
 understanding throttle fully bent 
+
+x
 with one step and breath 
 (on a brink of death)
 
@@ -75,7 +80,8 @@ TRIBE'S PRESENCE CALMS, FLAME OF
 SPIRITS AGES OLD OUT OF SPECTRUM
 VIVID MEMORY, GOT NO COLOURS GOTTA HINT
 
-rest your head sometimes yeah  (?)  
+rest your head 
+sometimes yeah  (?)  
 IT'S THE DIGITS THAT REMAIN, INNER CAUSE, 
 YOUR'RE IN ASHES WHEN YOU NOTICE ONLY FLAWS
 IN YOUR SOUL YEAH
@@ -128,7 +134,7 @@ WHERE THE HATE RESIDES NO SIMPLE MIND WHO KNOWS IT
 WEAPONS DRAWN TO (annuls it) WHAT THE next DAY'LL BRING
 NO HIDDEN LAYERS JUST THE GRIEF TRULY ONLY THING 
 IS MY OWN CAUSE OWN CHARGE OWN RETREAT 
-I HAVE NO WORDS OTHER THAN BE IN PEACE 
+I HAVE NO WORDS OTHER THAN TO BE IN PEACE 
 LET ME BE IN PEACE, REST IN PEACE YEAH
 STEADY GROUND
 
