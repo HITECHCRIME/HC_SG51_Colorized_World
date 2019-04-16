@@ -59,11 +59,11 @@ through the specters
 i emerge 
 
 eye to eye
+laser line of sight
 
 laser line of sight, line of 
 understanding throttle fully bent 
 
-x
 with one step and breath 
 (on a brink of death)
 
