@@ -2,7 +2,7 @@
 MOTHNODE x Annfran_ Colorized World (Prod. Lezter x Evince)
 Hitech Crime Single
 
-Rich The Kid x Offset Type Beat - Peak
+**Beat**: Rich The Kid x Offset Type Beat - Peak
 
 ## Lyrics
 ```
