@@ -1,5 +1,5 @@
 # HC_SG51_Colorized_World
-MOTHNODE x Annfran_ Colorized World (Prod. Lezter x Evince)
+MOTHNODE (x Annfran)_ Colorized World (Prod. Lezter x Evince)
 Hitech Crime Single
 
 **Beat**: Rich The Kid x Offset Type Beat - Peak
